@@ -1,0 +1,2000 @@
+﻿
+
+Chapter One
+
+
+
+
+Who would have known that Evander Alestaer, the so-called Arch Magus, would die not on the battlefield but from a curse? Over a dozen disciples of Evander surrounded him on his deathbed, their eyes brimming with tears.
+
+“Teacher! You promised me that after I become a Royal Court Magician, you’ll tell me the secret of the Void History!” said a young girl wearing a white robe. “You can’t die! You promised!”
+
+Evander smiled and stroked the hair of the young girl. She was the youngest of all his disciples and also the brightest. Five years ago, he journeyed through the Endless Desert in the West. Along the way, he passed by a village devastated by a Ground Dragon. Although those creatures were weak before Evander’s eyes, they still possessed enough strength to lay waste to a village or two. The desert clans were unable to subdue the Ground Dragon, resulting to hundreds of casualties. And this girl was among those that survived.
+
+After killing the Ground Dragon on a whim, the young girl suddenly started following him around. It was easy for Evander to shake off the tail, but his curiosity got the better of him. After three days, he finally turned around and confronted the young girl.
+
+“Why are you following me?” he asked that time.
+
+“How did you do that?” said the young girl. It had been three days since she started following Evander in the desert, and Evander had never seen her eat even once. Furthermore, the skin flask containing the water she carried with her had long been emptied. The girl definitely followed her through sheer will alone.
+
+“Did what?”
+
+“I saw how you killed the Desert Beast. The Dragon. Please,” she knelt down in front of him. “Teach me.”
+Others may say it was foolishness, but for Evander, it was one of the most precious memories he had in his short life. Picking up this frail girl had given him a sense of purpose. Back then, he had been killing monsters left and right just to satiate his curiosity, to get rid of his boredom. But after that, he decided to take in disciples, nurturing them to lead the path of the next generation.
+
+And right now, those very same disciples surrounded him in all directions, spouting things one after another, telling him that he should be strong and resist the curse.
+
+Unfortunately, this curse was something he got not from a monster, but from a failed experiment. When he was young, he kept searching for the elixir of immortality, the way to transfer souls, the way to extend a mortal’s life. After countless experiments, this was the result. Instead of prolonging his life, the curse started eating his soul. And now, at a young age of fifty, he was slowly dying.
+
+Looking back on his youth, he knew he had been foolish. It was decades after his countless experiments before he realized the true beauty of life. Life without end was not beautiful – it was nothing but torture.
+
+If he could have travelled back in time and meet with his younger self, he would have clearly told him that what he was seeking was nothing but foolishness, a futile thing that would do nothing but create an endless cycle of agony and suffering.
+
+“Teacher! Please don’t leave us!”
+
+“Teacher!”
+
+“Lord Evander!”
+
+Under the constant sobs, Evander felt his strength leaving his body. He could no longer open his mouth to speak. Moreover, his fingers started disintegrating into ashes. It was only a matter of time before he disappeared completely.
+
+Using what remained of his magic, he spoke through everyone’s mind. “I regret that I would no longer be able to accompany everyone through the path ahead. The war with the Demons will be surely tough, but I have faith in every one of you.”
+“Leanne,” said Evander to the young girl. “After my death, go to the Forbidden Tower and take my research. Inside those books I have written is the secret of the Void History. I’ve arranged it so that the Forbidden Tower will react to your magic.”
+
+The young girl still had snot dripping down her nose as she nodded. By now, only the trunk and the head of Evander remained. Everything else had vanished into dust.
+
+“Pollux,” said Evander.
+
+The oldest of his disciples, a bald old man, replied, “Teacher.” “I entrust the disciples to you.”
+
+Pollux bit his lips as tears fell down his cheeks. “Yes, Teacher.”
+
+Evander closed his eyes. Moments lingered and his entire body turned to dust.
+
+
+
+
+***
+
+
+
+
+
+Evander never believed in the afterlife. To him, the gods were nothing but an aggregation of magic, nothing more.
+
+But right now, he was starting to doubt his belief. After all, he should be dead, but for some reason, he could feel sensations throughout his entire body. He could feel the pain on his chest and knees. He could taste blood in his mouth. He could smell the scent of burnt flesh.
+
+What’s happening?
+
+Evander heard numerous voices.
+
+“You damn, incompetent bastard!” shouted someone. “I told you to give him a lesson! Not kill him!”
+
+The sound of a fist hitting flesh resounded. The scent of vomitus wafted through the air.
+“B-But Boss! That damn noble’s too arrogant! He even spat on my face when I talked to him!”
+
+“So what?!” The sound of wooden boxes flying and breaking was heard. “Tell me, how are we going to get the ransom with a dead body?! Tell me!”
+
+The owner of the voice was filled with vehement fury that Evander could feel his rage pierce his very flesh. With what he heard, Evander tried putting the pieces of the puzzle together.
+
+“M-Maybe we can still revive him? Let’s try asking some magician in the —”
+
+“—There’s no magic capable of reviving the dead! Argh! God, Damn it!”
+
+A moment of silence followed. Only the sound of heavy breathing was heard. Evander tried opening his eyes but failed. The cloth wrapped around his head prevented his eyes from opening.
+
+“Boss, what should we do?”
+
+“Burn the body. We can’t leave any evidence behind. Burn this damn place too after that.”
+
+“But what about the ransom money?”
+
+“Didn’t you hear what I’ve told you?! How are we supposed to get the ransom with a dead body! If you understand, go and burn the damn body!”
+
+Evander felt numerous hands untying him. His eyes were still blindfolded, but the ropes tied around his feet were cut.
+
+Evander was confused on what was happening. He was sure that he died on his bed, but now, he suddenly found himself tied and gagged by some unknown individuals.
+
+“Wait… Boss.”
+
+The men carrying him froze. Slowly, they put his tied body down on the ground.
+
+“He’s… He’s still alive!”
+
+“You felt it too? There’s definitely a pulse!”
+
+After that declaration, the sound of someone running was heard. He felt someone palpating his neck to check for the pulse. A shout filled with glee
+erupted.
+
+“The damn bastard’s alive! He’s alive!” shouted the Boss. “Quick! The water!”
+
+The cloth stuffed inside Evander’s mouth was removed, along with his blindfold. Without warning, cold water splashed on his face. He blinked thrice then spat out the blood that clung inside his mouth.
+
+It took his eyes some time before it was able to finally adjust to the darkness. Looking around, he realized that he was inside a small chamber. Two small torches were latched on the walls on the sides, while wooden boxes were piled on top of each other nearby. Surrounding him were five grown men.
+
+The one at the center breathed a sigh of relief. He stared at the blinking Evander, then grinned.
+
+“Little pup, so you’re still alive,” he said. He did not conceal the chuckle in his voice. “You got us worried for nothing!”
+
+Judging by the voice, this person was probably the one they called Boss. Evander first imagined him as a large, bulky man. But contrary to his expectations, this person was a thin guy with long, unshaven chin. Numerous tattoos were on his skin. Two large metallic rings pierced his nose.
+
+Still stunned by what was happening, Evander remained silent.
+
+“Speak up!” snarled the Boss.
+
+A fist struck Evander’s face, sending a tooth out of his mouth. The taste of blood became increasingly familiar.
+
+After coughing thrice, Evander spoke his mind. “Where am I? What’s happening? I don’t understand.”
+
+His mind was filled with numerous questions. He almost failed to notice the pain that permeated his entire body due to his confusion.
+
+The men around him looked at each other. Eventually, one of them replied. “Pretending you don’t remember?” He spat on Evander’s face. “Look, if your father doesn’t bring us the money soon, we’ll start cutting off your limbs one by one.”
+The confusion within Evander increased. Father? Money? A lot of things did not make any sense.
+
+For now, he decided to get rid of the wounds on his body. Although he was used to pain due to his experiences in the battlefield, it was still an unpleasant sensation.
+
+“The floor feels damn cold,” he mumbled.
+
+To the men’s surprise, the ropes tied around his hands burned and turned to dust. Evander slowly stood up, dusted off his clothes, then channeled his mana through his body. Slowly, the wounds on his skin closed.
+
+The five men took several steps back upon seeing the phenomenon. They have seen magic numerous times before, but not something like this. It was supposedly impossible to heal all of those wounds in a matter of seconds.
+
+Evander looked around. The door of the chamber was locked with a metallic chain.
+
+“I have some questions. I hope you’ll answer them for me,” said Evander.
+
+He frowned. He knew that this was not his body. There was no way he was this small and thin. Furthermore, the clothes he wore was too gaudy, with frills at the neck and the sleeves.
+
+“W-Who are you?” breathed the Boss. He locked eyes with Evander for a moment and couldn’t help but feel a chill crawl up his spine. The previously fearful eyes of this young noble had become predatory. The same eyes of those that have taken numerous lives before.
+
+After wiping the blood that was stuck at the corner of his lips, Evander replied, “Who am I? That’s what I’m trying to find out.”
+
+Chapter Two
+
+
+Evander flicked a finger and five orbs of light appeared above his head, clearly illuminating the chamber with an azure glow. In front of him, a small mirror made of water magic appeared. Evander stared at the figure reflected. Short silver hair, blue eyes, ivory skin. Although tattered, his clothes appeared gaudy, with golden patterns embroidered on the chest. The frills at the hem reminded Evander of dresses usually worn by women.
+
+A young man?
+
+His mind was filled with various thoughts and questions. He was sure he was dead. After resisting the curse by sheer magic strength alone, his mortal body finally crumbled and turned to dust. There was no mistaking that.
+A snarl broke Evander out of his stupor.
+
+“What are you?! There’s no way the incompetent son of the Marcus Family’s capable of silent magic!” The Boss took out his sword from the scabbard. At the same time, his men did the same. Numerous sheathing sounds were heard inside the quiet chamber.
+
+“Grab him!”
+
+On command, four men shot towards his direction. After getting a feel of his body, Evander realized that the mana pool of his current shell was low. The magic he had just performed consumed almost half of his entire mana. Compared to his previous self, the magic capacity of this body was like a drop in a lake.
+
+“I still have some questions I would like to ask,” said Evander. “But the leader should be more than enough.”
+
+Evander flicked his fingers and the orbs of light vanished, the flames on the torches dissipated, and darkness permeated the room. Inside the darkness, he dealt blows towards the assailants one after another. The Boss could not see anything, but he knew that his men have been knocked unconscious. He shivered upon this realization.
+The Boss felt a hand grab his neck. In that instance, all of his strength left his body. He could not move. He wanted to scream but no sound came out.
+“It’ll be a waste of time to ask,” said the voice within the dark. “I’ll just read your memories.”
+
+Read memories? There was no such magic! The Boss felt that what the young noble just said was absurd, but his instinct was screaming at him otherwise.
+
+“Now, sleep.”
+
+Upon the utterance of those words, the Boss lost consciousness.
+
+
+***
+
+
+Evander Alestaer still couldn’t get over his shock. After reading the relevant memories of the leader of the group, he found out that the current body he possessed belonged to a young noble from the House of Marcus. This young noble was well-known for his hedonistic lifestyle. A conceited, invidious young man that would sexually harass every pretty woman he met along the way.
+
+Memories read by magic were usually fragmented and incomplete, that’s why Evander was surprised that despite the limit of this spell, he was able to see so much information about his current shell’s notoriousness. It seemed that the previous owner of his body was someone hated by everyone. A noble that used the name of his family as he pleased.
+
+Most probably, the true owner died in the hands of these guys, and for some unknown reason, his soul took over the body. It was a phenomenon he had never expected before. After all, Evander did not believe in the afterlife. It was the same reason why he kept seeking the elixir of immortality when he was young.
+
+Who would have thought that there was really a life after death? A retake? Evander chuckled.
+
+“Amusing,” he said. “So, this is the Kingdom of Lukas, huh?”
+He could not remember a Kingdom with such name. Was this the same world but a different continent? A different timeline? Or maybe, a different world entirely. He shivered as he smiled in glee. His current shell was young, probably fourteen or fifteen years old. He would have a lot of time to explore this whole new environment.
+
+Evander sat on a wooden box. Near him, the unconscious bodies of the five men laid on the ground. It was dark, but his eyes had already adjusted to it. He summoned a pebble-sized orb of light on his palm.
+
+“Just as I thought,” sighed Evander. The magic capacity of his current body was small, almost nonexistent, definitely the same as that of a common person. The series of simple magic he had cast before almost consumed his entire mana pool.
+
+If he were to explore the secrets of this world, he would need a stronger vessel. He decided that he would first train this body in order to achieve his goal.
+
+The sound of numerous footsteps was heard outside. Evander estimated that there were more than two dozen of them. Immediately, he dispersed the pebble-sized orb of light on his palm and darkness once again filled the chamber. Using what remained of his magic, he amplified his senses. He soon heard the hushed voices outside.
+
+“He’s still alive, right?”
+
+“Of course! He should be! Lord Drakus will kill us if he finds out that his son died!”
+
+“Be ready to charge on my signal.”
+
+Evander realized that these men must be the ‘magicians’ mentioned by his assailants. They must be here to rescue him.
+
+“This is really amusing,” said Evander. He couldn’t help but chuckle.
+
+He stood up from his seat then laid on the ground, pretending to be unconscious. He did not know why he was suddenly given a second chance in life, but he might as well enjoy it. For now, he decided to see where things would flow.
+
+BAM!
+The sound of the door breaking into smithereens reverberated. Splinters of wood flew in all directions as the metallic lock clanked. Although his eyes were closed, Evander could feel numerous presences enter the chamber. And they all halted at once.
+
+“What the hell…”
+
+“Who did this?”
+
+There was momentary silence. They were probably surprised to see the enemies that they were supposed to fight unconscious.
+
+“The Young Master’s here! Over here!”
+
+Evander felt two large hands lifting him up. His eyes remained closed as he waited for things to unfold. In his heart, he could not help but grin in anticipation. He got to admit, this was exciting.
+
+“How’s the Young Master?”
+
+“He seems fine. No injuries too!”
+
+Ah! Damn it.
+
+Evander almost bit his lips. He forgot that he healed his entire body. It would definitely be suspicious that there was not even a single scratch on him. He inwardly reprimanded himself for being unable to think of such an obvious thing.
+
+“Thank God. Lord Drakus would kill us if something happened to his son!”
+
+Evander could feel the heartfelt relief from the owner of the voice. He felt someone gently slapping him.
+
+This is it. I can finally play that role.
+
+Slowly, Evander opened his eyes. He blinked thrice then looked around him.
+
+“Young Master!”
+
+Surrounding him were relieved faces of men and women. Unlike the guys from before, these group were wearing cerulean cloaks. On their chest was the emblem of a rose and a shield.
+
+Evander pretended to be dizzy as he slowly sat up.
+“What happened?” said Evander.
+
+“Young Master, I’m really glad you’re safe!” said an old man with monocles. He was wearing a brown chaleco and a matching bowtie. His ashen hair was neatly combed to the back. “We’ve been searching for you for days!”
+
+He pretended to be familiar with the old man. “You finally came. I’ve been here for so long…” He looked at the unconscious men on the floor. He widened his eyes in an attempt to look surprised.
+
+“They’re unconscious,” said the old man, his brows creased, eyes grim. “Young master, what happened here?”
+
+Silence befell them. Evander shook his head. “I don’t know.” The cloaked figures looked at each other.
+
+The old man with monocles was frowning. “But young Master—”
+
+“—Stop.” Evander placed a hand on his forehead. “I’m feeling dizzy. Take me back home.”
+
+The old man closed his eyes and eventually bowed his head. “Of course. You must be tired. As you wish.” He turned to the cloaked figures. “Escort the Young Master to the carriage. Ask the Healer to examine his body.”
+
+Five cloaked figures assisted Evander in getting up.
+
+After Evander left the chamber, he amplified his senses. He heard the words uttered inside the room.
+
+“Sir Gaston, what should we do with these men?”
+
+“I’ve spoken with Silver Hand. They’re unaffiliated small fries,” said the old man. There was not an ounce of empathy within his voice. “Make them spill it out. All of it. The method doesn’t matter. Make them talk. You can kill them afterward.”
+
+“Understood.”
+
+Chapter Three
+
+
+“Lark Marcus,” he mumbled. Evander liked the sound of his new name. At the very least, his parents have good naming sense.
+
+Currently, Lark was inside a carriage heading towards his mansion. Through the window, he was able to see the small town. The houses resembling mud clays were haphazardly built in all directions. The streets were covered with snow, creating a white background.
+
+In the Magic Empire, this place would hardly be called a town. It would be more appropriate to call it a village. By sight alone, he estimated that there were probably only a hundred houses in this place.
+
+Still peeking through the window, his eyes landed on the residents shivering on the streets. They were skin and bones, as though they have not eaten for several days.
+
+“Why are you letting the residents starve to death in this weather?” asked Lark curiously.
+
+Gaston, who was sitting beside him, was surprised by this question. He had known the young master since he was young, and the old man knew that he did not have the slightest care about the residents.
+
+The old butler cleared his throat. “Young Master, you don’t remember the Black Famine?”
+
+Under the watchful gaze of the butler, Lark replied, “Don’t really bother to remember the small stuff. What of it?”
+
+Gaston sighed. “Three months ago, the Black Famine hit the entire Kingdom, just right before the harvest. As a result, all the crops withered. Only root crops remained. Right now, wheat is weighed in gold. The nobles themselves are hardly getting by. We can’t afford to feed those residents.”
+
+Gaston further explained to him that the Black Famine was caused by numerous small insects that ate the crops. Although they did not linger for long, their bites cause crops to die and wither in a few days. The Kingdom
+had been infested by these insects for such a long time that the King had even tasked the Ministry of Research to find a way to annihilate the pests.
+
+Judging by the description of the butler, those insects were probably Kelnup Flies. Lark had encountered them before in his previous life. And based on his knowledge, it was actually really easy to take care of those pests.
+
+If those are really Kelnup Flies. And the plants growing in this place...
+
+They’re the same.
+
+The possibility that this was the very same world was high. But right now, he had not enough evidence to prove that. If possible, he wanted to go to a National Library and learn more about this world. But that have to wait for now. First, he needed to address the immediate problems.
+
+Lark furrowed his brows. “But I don’t understand. There’s so much food growing on the ground. There’s no reason for the residents to die of hunger, right?”
+
+Gaston also peeked through the window. “What do you mean, Young Master?”
+
+Lark pointed at the weeds that grew on the snow-covered ground. If one were to look at the sides, there were actually a lot of them.
+
+“Those things are edible,” said Lark.
+
+Gaston looked at the young master with eyes filled with understanding. “Young Master, those things are poisonous—”
+
+“—if eaten raw, yes,” said Lark. He shouted towards the coachman. “Stop the carriage!”
+
+Immediately, the carriage halted to a stop. Lark opened the door and was immediately assaulted by the freezing snow.
+
+Gaston quickly followed behind him. “Young Master! You’re going to catch a cold! Please go back inside the cart!”
+
+Lark simply ignored the old butler. He bent down and pulled numerous weeds off the ground.
+
+“What do you call these here?” said Lark.
+Although hesitant, the butler replied, “Poison Cloud, Young Master. It helps melt the snow during winter, that’s why the residents didn’t pull them out. But Young Master, as I’ve said before, those things are proven to be poisonous.”
+
+Lark smiled. “Have you heard of commoner’s wheat before?”
+
+There was a small pause before Gaston shook his head. He wanted to drag away the young master from this freezing street. He was worried that he would catch a cold from this weather.
+
+“Tell the other servants to pull out as much Poison Cloud as they can and place it inside the carts,” said Lark. When he saw that Gaston was about to object, he added, “That’s an order.”
+
+Unable to object, the old man simply sighed and bowed, “As you wish, Young Master.”
+
+Soon, the servants in the next carriages went down one after another. Wearing nothing but tunics and wooden sandals, they trembled from the assault of snow. After receiving instructions from the butler, they began pulling out the weeds and placed them inside the cart.
+
+“Gaston, how many residents are there in this town?” said Lark.
+
+“Around half a thousand, Young Master,” said the old man.
+
+As expected, this place was almost desolate. It should not even be called a town with such meagre population.
+
+After knowing the population of his territory, Lark instructed the servants to gather enough weeds to fill two carts. Some of the residents walking through the snow would stop and stare at them as they pulled the weeds off the ground.
+
+Gaston could not help shaking his head. What they were doing was a waste of time, he knew, but he could not do anything since it was the young master’s orders.
+
+“That should be enough,” said Lark. He clapped his hands once. “Let’s go.”
+
+After filling two carts full with weeds, the group went back towards the mansion. It was a place located in the middle of the town. According to Gaston, before the House of Marcus gained this territory, it was home to a
+wealthy merchant from another country. The mansion’s interior was good enough for Lark to give it a passing mark.
+
+After changing his clothes, Lark asked Gaston to summon the servants.
+
+Soon, eleven men and women gathered in the hall.
+
+“Listen,” said Lark. He was holding a poison cloud in his hand. “As the Lord of this territory, I do not wish for my subjects to starve to death.”
+
+The servants were clearly confused, but they remained silent regardless. “We will be distributing food to all of the residents in this place. After that we will teach them how to gather their own food during this freezing winter.”
+
+One of the servants timidly asked, “But young master, the reserves in the granary are almost empty. We might even have to import some wheat before winter ends. Forgive me for saying this, but it’ll be impossible to feed all of the residents.”
+
+“We have a solution for that,” said Lark, confidently. He raised his hand holding the weed, showing the poison cloud before everyone’s eyes. “We’ve gathered two carts of these things. You call it poison cloud, correct?”
+
+The servants were baffled.
+
+“Young master, those are poisonous!”
+
+“The residents will die if we feed them those things!”
+
+Lark found it amusing. In his previous life, these things were highly-valued crops. They were easy to cultivate and hardly needed sun and water to grow. The only downside was that they were not as delicious as wheat, but for a starving person, the taste of food was trivial.
+
+“Silence!” said Lark. Everyone immediately shut their lips. “These weeds are not poisonous if cooked properly. First, you will burn it until it turned into dust. Gather all the remnants and boil it. Understood?”
+
+The servants were clearly hesitant. After a fierce glare from Lark, they all bowed their heads. “Yes, Young Master.”
+
+Lark clapped his hands. “Remember the instructions. Now, get to work!”
+The servants dispersed and began working. Under the supervision of Lark, they cleared the hearth and used it to burn the weeds. After turning it into crisp and dust, they gathered the remnants and boiled it in water. To their surprise, the small black particles turned pale brown and bloated. They somehow resembled caryopsis.
+
+Gaston was speechless upon seeing it. He looked at the young master and noticed that Lark was grinning.
+
+“T-This…” Gaston’s voice trailed off.
+
+“Commoner’s Wheat,” said Lark. “They aren’t tasty at all, but they’re edible. After burning, the poison within the weed is destroyed by the heat. Tastes a bit nasty, actually, but this should do for now.”
+
+“I-I see…” said Gaston. “But Young Master, are you sure it’s safe to eat? If the residents die because of this, your father—”
+
+“—It’s absolutely safe,” said Lark. He scooped out a caryopsis and placed it on his mouth. Gaston’s jaw hanged when he suddenly saw the young master eat food that was supposedly poisonous. “See?”
+
+After a few more minutes, Gaston was finally convinced. The young master ate the poison cloud but was still fine. Therefore, the burning process must have indeed destroyed the poison.
+
+“Disseminate the news to the residents. The mansion will give free food to everyone.”
+
+Gaston felt that something was different from the young master. His arrogant and invidious demeanor was gone. Instead, he could see a different kind of light within those eyes. The old butler could not define what exactly it was, but he could not help but tremble in excitement. This was, after all, the first time the young master showed compassion for the common people.
+
+Gaston bowed. “As you wish.”
+
+Chapter Four
+
+The news about the free wheat porridge provided by the young master stirred up the citizens of Blackstone Town. According to the servants he sent, the noble from the Marcus Family was going to distribute free food to everyone in the town. All they need to do was go to the mansion and receive it personally.
+
+When Loevar heard of this, he immediately dismissed the news. That young master was an arrogant and condescending noble, even worse than the merchants that would occasionally drop by the town. Three months ago, when the Black Famine hit the entire Kingdom, Loevar went towards the mansion to ask for food. He was willing to take even the scraps, for his younger brother was dying of hunger that time.
+
+Loevar would have understood if the young master was unable to spare them any food, since the Black Famine affected everyone regardless of the status. But instead of simply rejecting his pleas for help, Loevar was beaten up by the guards of the young master. If not for the butler stopping the noble, Loevar would have died from that encounter.
+
+From then on, the hatred within Loevar grew. He knew that there was no way the mansion was giving out free food. There was no way that devil incarnate would care about common people like them.
+
+Luckily for Loevar, his younger brother survived that famine. Although right now both of them were skin and bones from constant hunger, at least they were still alive. During the freezing winter, they would tear off the bark of trees and eat them. If the Gods were benevolent, a frog or a mouse would be available for dinner.
+
+“Anthony,” said Loevar. He grabbed his wooden bow and the quiver. “I’ll try hunting for food outside. Don’t go out. Understood?”
+
+It was freezing outside and the chances of successfully hunting a rabbit or other small animals in the nearby forest was close to none, but Loevar still wanted to try. He needed to find a way to procure food for the two of them, otherwise, they would die this winter.
+
+“Anthony?” said Loevar. There was no response.
+He pushed aside the ragged cloth that served as partition between the bed and the kitchen. He found out that his supposedly still sleeping brother was not there.
+
+Loevar furrowed his brows. “Where did that kid go?”
+
+Hurriedly, he wore his tattered coat then went outside. Snow continued falling down the heavens, piling up above the roofs and the streets. A steam would come out every time he breathed.
+
+Usually, there would be very few people outside in this weather. Even the homeless ones would try to find a shelter from this cold. But right now, there were numerous people outside.
+
+‘What’s happening?’ he thought.
+
+He approached the tailor walking in front of him. After grabbing her shoulder, the old woman turned around. “Ah, Loevar. What is it?”
+
+Since it was a small town, everyone knew almost everyone by name.
+
+“Why are there so many people outside?” said Loevar. It was literally freezingly cold right now.
+
+“You didn’t hear about the free wheat porridge by the Young Master?” said the old tailor, raising a brow.
+
+“You mean that crappy news about the noble from the Marcus Family?” said Loevar gloomily. He never believed the news even for a second.
+
+The tailor looked around nervously. “Shh! What if someone from the mansion hears you?!”
+
+“So what?” said Loevar. “They’ll kill me, right? Those guys are demons. Granny, you shouldn’t trust those guys. It’ll be better for you to stay inside. You’ll just catch a cold here. There’s no way those arrogant bastards will open the granary for us common people.”
+
+Although the tailor clearly heard his warning, it seemed that she had not the slightest intention of going back. Loevar sighed in his heart. He could see that more and more people were going out of their houses, probably going towards the mansion.
+
+“By the way, have you seen Anthony?” said Loevar.
+The tailor tightened the thin scarf around her heck. “I’ve seen him pass through my shop some time ago. He’s probably headed to the mansion right now.”
+
+Loevar groaned. The kid probably didn’t tell him because he knew that he would refuse.
+
+“I see,” said Loevar. “Thank you.”
+
+Loevar walked along with the other residents towards the mansion. Upon arrival, he saw the excited faces of the people. He could see some of them holding large bowls of soups in their hands, excitedly sipping it.
+
+For a moment, Loevar was stunned that the news was actually true. So, the young master was really trying to feed the starving residents? Loevar could not believe it. In normal circumstances wherein the granary was full, it would have been a miracle for the nobles to feed the common people. But now that the Kingdom was under a state of famine, it was even more preposterous.
+
+How did they gain so much food to feed all these people?
+
+‘Don’t tell me, the young master used his own pocket money to import food from the Lion City? Impossible. A devil’s not that generous.’
+
+“Listen up! Once you’re finished with the food, put back the bowls so that others can use them!” shouted a young man with silver hair. Loevar stared at him in wonder. There was no doubt about it – that was the second son of Lord Drakus.
+
+The servants of the noble would fill the bowls to the brim then hand it towards the ones in line. The queue was long, but Loevar was sure that to the starving residents, it did not matter how long they had to fall in line for. They were just grateful that they would be able to eat at all.
+
+“Anthony!” shouted Loevar. He finally saw his little brother, right at the front of the line.
+
+As he was about to approach the kid, he was stopped by the servants. The butler from the Marcus Family shook his head twice. “No skipping in line. Get to the back.”
+A bit helpless, Loevar simply waited for his younger brother to finish the queue. After receiving his share of food, the young master stumped a charcoal mark on the kid’s nail.
+
+“Why did you suddenly leave without telling me?” reprimanded Loevar the moment his brother went to him. Right now, the kid was carrying a large bowl filled with soup.
+
+“You hate the Young Master, right? If I told you, you wouldn’t let me come,” said Anthony.
+
+The voice of the kid was loud, and the Young Master stared at Loevar upon hearing it. Seeing this, Loevar panicked and immediately hushed his younger brother.
+
+“Shhh! Not too loud!” breathed Loevar. He could not help but stare at the bowl his little brother was holding.
+
+“Big brother, you should get a bowl of porridge too,” said Anthony. He scooped the bottom and showed Loevar the contents. “Look. They’ve added a lot of wheat in it.”
+
+Loevar could not help but salivate. His stomach started grumbling. If he fell in line, it would probably take an hour or two before his turn, but the temptation of the wheat porridge was too enticing. A single bowl would probably be enough for them to survive through an entire day.
+
+“Listen!” The Young Master clapped his hands once. Despite the falling snow, he stood outside the manor, as though he was not afraid of catching a cold. “I want all of you to pass the news to everyone. Every day, until the next harvest, we will be giving out two bowls of wheat porridge to each resident! One in the morning and one in the evening!”
+
+The declaration stirred up everyone. Murmurs filled the mansion’s grounds.
+
+“I-Is that true, young master?” asked one of the residents.
+
+The young master nodded and smiled confidently. “Of course. I, Lark Marcus, never lies. You have my word.”
+
+Although Loevar was doubting the credibility of the promise, he could not help but get excited. The news regarding free food for today was, after all, proven true.
+“But it is not free!” declared the young master. The residents panicked upon hearing it. This town was among the poorest in the entire region. If the young master started asking silvers for food, then they would have no means to pay up.
+
+“For each bowl of soup, an individual has to pay with three Poison Clouds!” said the young master. He took out a weed from his pocket and showed it to everyone. “You’ll have to give three of this in order to get your share of food. That is the rule!”
+
+“J-Just that?” asked a resident.
+
+“If… If it’s just Poison Cloud… I have many of those growing around my house!”
+
+“Me too!”
+
+The crowd began to get excited. Loevar felt that the payment for a wheat soup was too cheap. After all, it was possible to get Poison Clouds by simply walking through the streets.
+
+The young master was grinning. “I declare that from now on, no one shall starve during the freezing winter under my rule! This is the promise of Lark Marcus!”
+
+
+
+Chapter Five
+
+
+During the past few days, Blackstone Town became lively. Despite the falling snow, people were frequently seen outside their homes, harvesting the poisonous weeds on the ground. Since those plants were ubiquitous, fighting over them rarely happened except in some isolated circumstances.
+
+As Lark looked through the window of his room in the mansion, he felt a sense of satisfaction. After learning that he was the lord of this territory, the first thing that came to his mind was to restore the order of the town. And to do that, the first step was to satiate the hunger of his people. After all, starving men were no different from mindless beasts. It would be unwise to hand important jobs to such people.
+
+Three knocks were heard and the door creaked open. Gaston went inside his room and handed him a stack of papers.
+
+“Young Master, these are the files and records for Blackstone Town,” said Gaston. He was inquisitively gazing at the young noble. He had never known that a time would come wherein the Young Master would be interested in actually governing the place. And to his utter surprise, the Young Master asked him to collect all available documents related to this town.
+
+The stack of papers was as thick as a forearm. A scholar would normally take a week at the minimum before they would be able to absorb those that were written inside. However, the Young Master merely scanned each paper. His eyes swiftly moved through each document, reading them quickly using magic.
+
+After an hour, Lark tossed the last document onto the top of the table. He nodded to himself while holding his chin. Afterwards, he pulled out a quill and began drawing a complex symbol on a parchment.
+
+“I have a clear idea of the town’s status now,” said Lark. “Gaston, I want you to order the mason living in the town to create a hundred stone tablets for me.” He handed the old butler the parchment containing the drawing.
+“Tell him to carve these symbols on the tablets. For the size, half an arm’s length for both the height and width should do. Make it as thick as a finger.”
+
+The butler was confused on what was happening. He said, “Young Master, a stone tablet of that size would cost us about two to three silver coins each. I don’t think it’s wise to spend it on unnecessary things—”
+
+“—It’s not unnecessary,” said Lark. He sat on his chair then sipped some wine. “Those things will enable my subjects to survive through the winter, at the very least.”
+
+“Young Master… I don’t understand,” said Gaston.
+
+“There’s no need for you to understand,” said Lark, bluntly. “Just do it.” Gaston creased his brows. “I will obey.”
+
+After the old butler left the room. Lark stood up and took out a document from the stacked papers. Written inside was the number of households and families in Blackstone Town.
+
+“Got to hand it to the merchant that lived here before,” said Lark. The file was around a year old, but it should be good enough as basis for now. “He sure made work easier for me. He even bothered to create a census for the families living here.”
+
+Lark still have no idea why the second son of the powerful Marcus Family was sent to this decrepit town, but he deemed that since this place was a granted territory, he might as well nurture it. His current body was still young, and despite the very low mana pool, there would still be enough room for it to grow. It would probably take a few more years before he could perform Grand Scale Magic just like before.
+
+
+***
+
+
+After three days, the stone tablets were finally finished. To say that they were stone tablets was a bit of an overstatement. Those things resembled mud than stone. Their brown finish reminded Lark of the uneven ground in the outskirts of the Magic Empire.
+Lark summoned the servants in the hall. Before everyone’s gaze, he announced, “I want these tablets to be strategically placed in between houses.”
+
+“As for their use,” said Lark. He took out a pouch filled with golden sand. “These things are basically heat stones. They’ll adjust their temperatures accordingly, maintaining an optimal temperature in a limited radius. Since this town is small, a hundred stones should be enough.”
+
+Gaston stared at the golden sand the young master held in his hand. If he was not mistaken, those were gold dust, a raw material frequently used to create golden threads.
+
+‘The young master surely wouldn’t…’
+
+Before Gaston could even react, Lark started sprinkling some gold dust on the symbols carved on the stone tablets. He then placed a palm on the center of the symbol, and soon, the hexagram glowed a golden color, before vanishing moments after.
+
+After Lark was on his third tablet, Gaston finally managed to blurt out his protests.
+
+“Young Master! Those are gold dusts! To use them like that—” squealed Gaston. He could not help but shiver upon seeing the gold dusts disappear before his very eyes. It was like throwing gold coins away.
+
+Lark chuckled. “Relax. What’s the use of golden threads anyway? They wouldn’t raise the productivity of my people. With these heat stones, working during winter would no longer be a problem.”
+
+As time went on, Gaston realized that the young master was becoming more and more eccentric. Where did the hedonistic, mischievous, and arrogant young master go? Old as he may be, Gaston could clearly feel that the young master had definitely changed.
+
+Soon, all of the tablets were completed. Lark nodded satisfactorily at his work. Gaston noticed that the temperature inside the manor had changed. It was as though summer had arrived.
+
+“Nice and warm, isn’t it?” grinned Lark. “The advantage of gold dust is that even after a long time, the magic wouldn’t easily fade away. That’s why
+these things are one of the catalyst when performing Grand Scale Magic. Of course, if it’s High Rank Magic, the effect would not last long with such poor materials.”
+
+Once again, unusual words were coming out of the young master’s mouth.
+
+Lark said to the butler. “The heat stones will easily melt the snow within a certain radius. Place them about thirty meters apart from each other. Just to be safe, bury them half a meter deep into the ground. Also, issue out a decree that anyone who destroys or steals them will be severely punished.”
+
+Seeing the resolute expression of the young master, Gaston nodded. “As you wish, Young Master. I will immediately ask the servants to install it all throughout the town.”
+
+Lark was smiling. “According to the documents, there're around sixty or seventy residents that are currently homeless. Spread the news to them – Lark of the Marcus Family is willing to give them free food and shelter in exchange of their service.”
+
+Gaston was startled. “But young master! That’s absurd! We cannot support such a large number of servants!”
+
+After reading documents, Lark found out that he still had around four hundred gold coins left in the treasury. It was probably a small amount when compared to the other nobles, but in this small town, it would be enough to hire a large number of individuals.
+
+Lark deemed that it would be better to circulate the money than let it stay inside his treasury. After all, as the lord of this town, it would all come back to him in the form of taxes eventually. Right now, his most important asset was not the gold coins but the people. In this town that did not even have a thousand residents, it would be foolish to let them die from hunger and the cold.
+
+He had seen the barren lands he passed by along the way when he was riding the carriage. According to Gaston, those lands were non-arable. Lark could not help but shake his head when he learned that the vast land surrounding the town was not actually fully utilized. According to the farmers, only a small portion of it was suitable to grow wheat. It was utter bullshit born from the lack of knowledge.
+Lark was confident that it should be possible to convert those so-called nonarable lands to an abundant wheat field. It would take time, but it would definitely increase the growth of his territory later on.
+
+And right now, those jobless and homeless residents were the perfect candidates for the job.
+
+
+
+Chapter Six
+
+Inside his room, Lark sat cross-legged on the floor. Since receiving his new body, he never neglected mana training even once. Although the current vessel was severely lacking, with proper training, he knew that it would someday become powerful enough to perform Grand Scale Magic.
+
+With his eyes closed, he began to forcefully move the small amount of mana in his body. He channeled it through different parts, making it circulate repeatedly. Only through this way would his body become accustomed to the existence of mana. It was this simple and repetitive exercise that will help expand his mana pool.
+
+His breathing slowed down and the sound of his surroundings disappeared afterwards. He could no longer hear the sound of pouring snow. He could no longer hear his soft breaths. He could no longer feel the carpeted ground. All that he could feel was the serpentine-like flowing energy within his body – the erratically moving mana.
+
+Minutes turned into hours. By the time he was done, his entire body was drenched in sweat despite the cold weather. His heart was loudly pounding, his temples pulsating. Lark exhaled then stood up. A smile slowly emerged on his face.
+
+“This is quite fun.”
+
+The sensation of slowly expanding his mana pool was something he had long forgotten before. Back in his previous life, his body had already attained a colossal mana pool that it was no longer possible to expand it further.
+
+Just when he was about to go down to grab something to eat, three knocks were heard on the door and Gaston’s voice was heard, “Young Master, the residents that answered to the job offer has been gathered in the hall.”
+That was fast. Lark approvingly said, “Good job.”
+
+After leaving the room, together with the old butler, Lark went towards the hall. The guards and the servants greeted him upon his arrival. The
+residents, on the other hand, wore nervous faces. Some were gawking at the paintings and furniture, while some were looking on the ground, seemingly afraid of the guards.
+
+“Welcome,” said Lark. “I’m sure you know me already but let me introduce myself. I am the Lord of Blackstone Town – Lark Marcus.”
+
+The residents bowed their heads upon this introduction. Lark quickly counted the number of applicants. Forty-eight. It was less than he had expected.
+
+“I will cut straight to the point,” said Lark. “I am here to offer everyone a job – jobs that would feed them. Everyone will be well compensated.”
+
+There was a small pause. “How many of you knows how to read and write?”
+
+The commoners looked at each other. As expected, there were none.
+
+Lark simply smiled. He had not really expected them to know of such an advanced skill. After all, you would need at least basic education to know how to do those things. Just right when he was about to continue his speech, to his surprise, a young woman raised her hand.
+
+“I-I know h-how to read and write,” said the young woman. Her blonde hair was frizzy and her face was filled with dirt. Her dress was moth-eaten. After seeing that everyone’s eyes were on her, she hunched her shoulders to appear smaller.
+
+“Oh?” said Lark. His eyes glimmered with interest. “Could you tell me how you learned it?”
+
+There were a few seconds of hesitation. “I… I once worked for a noble in Lion City. During that time, the mistress would let me accompany her to her studies. I learned how to read and write from that.”
+
+Lark felt that she was not lying. He locked eyes with Gaston for a moment, and the old butler seemed to have realized the young master’s intent. He pulled the young woman from the crowd and let her stay near the young master.
+
+“Name?” asked Lark.
+
+“M-Melody, young master,” replied the young woman.
+He could see her trembling shoulders. Lark was aware of his vessel’s misdeeds before. Sexual harassment, physical abuse, attempted murder. The previous owner of this body, despite being young, was a total demon. He could understand why she was afraid of a young man like him. For now, all he could do was slowly change the perception of his subjects with the passage of time.
+
+“If you pass my little test, I will grant you an important position later,” said Lark in a small voice, just enough for him and her to hear.
+
+The young woman stared at him in bewilderment for a moment, before nodding once.
+
+Lark cleared his throat. “Anyone else knows how to read or write?” After some time, no one else raised their hands.
+
+“What I need right now are three kinds of people: Farmers, builders, and soldiers,” said Lark. “One month from now, winter will end. Of course, it’ll take at least two weeks before the snow fully melts. Once that happened, I want my farmers to immediately work on cultivating the lands in the north and the west.”
+
+Lark noticed that some of them wore confused looks upon hearing that statement.
+
+“But young master,” said one of the commoners. “The northern and western lands of Blackstone Town are dead. It’s impossible to grow crops in that area.”
+
+“We have a solution for that,” said Lark.
+
+After reading the documents left behind by the wealthy merchant that used to live in this town, he learned that there was a certain area of the town wherein the residents dumped their night soil. This practice had been going on for more than a decade now, and that single fact greatly pleased Lark. Once winter ends, he would assign some farmers to spread those natural composts to the northern and western land. Of course, there would always be a risk for disease when using human excreta, but Lark planned to secretly deal with it using magic. For now, he simply had to wait until winter ends before he could finally start cultivating the lands.
+Lark clapped his hands once. “Next are the builders. It doesn’t matter if they are male or female. Under my supervision, you will be tasked to create houses at the eastern part of Blackstone Town. I plan to expand the border of the town at least twice during this year. Payment will be 6 silver coins per month. The houses built will be granted to those without a residence in Blackstone House. Of course, it wouldn’t be given for free. You will be asked to pay a monthly rent of 2 silvers and 25 coppers. The construction project will start right away this winter.”
+
+This way, the number of homeless locals would be reduced and at the same time, Lark would be able to effectively circulate his money via the salary and rent. Since the residents would still be required to pay taxes later on, it was a win-win situation.
+
+The commoners were clearly interested with the proposal. After all, the normal monthly income of a resident of Blackstone Town was around three silvers. The offered salary of the young master was twice that amount. Even if they were to pay for the rent, they would still have more than enough left to pay for food and other necessities. Moreover, they would be able to have their own house to live in.
+
+But there was one problem.
+
+“But young master,” said one of them. “You said that you plan to start the construction this winter. The snow outside has piled up till our calves. We’ll freeze to death if we work under such weather.”
+
+This was one of the reasons why Lark immediately created heat stones after receiving the documents of Blackstone Town. He could not really wait until winter ends before he started the construction project. Waiting one and a half month just because of the stupid snow would be simply a waste of time.
+
+“I’ve asked some of the servants to install several heat stones near the eastern border of the town,” said Lark. “It will melt the snow and greatly reduce the cold. Of course, we will provide the workers with thick clothes and hot soup to combat the cold. Rest assured, no one will die of cold during the construction period.”
+The commoners were still obviously puzzled on what the heat stones were, but they nodded for now.
+
+“Since the cultivation of the land will have to wait until the snow melts, the farmers will temporarily help the builders during this winter season. The payment will be the same, six silvers. Also, the farmers, builders, and soldiers are eligible for a house. They only need to pay the appropriate rent.”
+
+“Lastly, the soldiers,” said Lark. Out of the forty-eight gathered here, only twenty-three were males. Lark secretly hoped that a lot of them would join his army. “Only males are allowed to become my soldiers. Soldiers will get paid eleven silvers, three meals a day, with a free small meat every four days. Also, I will allow them to stay at the cabin behind the Mansion. It should be large enough to accommodate everyone.”
+
+The announcement stirred the crowd. Judging by the expressions of everyone, they would like to immediately jump on the offer. Eleven silvers were an absurd amount of salary for commoners like them. Moreover, they would immediately have a home once they were accepted. Even the old butler seemed shocked by the young master’s sudden declaration. Lark simply grinned at him and wordlessly told him to stay silent.
+
+“Aside from Melody here, I have clearly stated the conditions of employment for everyone,” said Lark. “I will give everyone half an hour to decide which profession you would like to choose. Of course, if you don’t like to work for me, that’s fine too.”
+
+Half an hour later, Gaston gave Lark the results. Twenty-three were interested in farming, while seven for building. As expected, more locals chose the job that was more familiar to them. Lark deemed that the shortage of manpower for the construction would be alleviated by the farmers during winter season. They could help move stones and wood, at least.
+
+For the soldiers, fifteen men were interested. The remaining three locals chose to not accept any jobs. Lark’s reputation was probably the deterrent, since the offers themselves were magnanimous enough for this small town.
+
+Lark clapped his hands once and everyone’s attention turned to him.
+“I want all of the farmers and builders to gather in this hall tomorrow, same time,” said Lark. “We will immediately start the construction of the eastern border this winter.”
+
+Those that belonged to farming and construction bobbed their heads and replied, “Understood, Young Master!”
+
+Lark turned towards the group of men on his left. Since they were homeless and the Black Famine had just struck the Kingdom, they were skin and bones. If not for the free porridge he had been giving out during the past few days, they would have been skinnier.
+
+“Now, for the soldiers. I will be giving out a simple test,” said Lark. He signaled the servants and soon, numerous pots made of clay were handed out to each of them. “If you pass the test, I will allow you to enter the ranks of my personal army. All benefits will be given, of course. You have my word. But if you fail to pass my simple test, do not worry. You can still choose to work as a farmer or a builder for Lark Marcus.”
+
+Lark told the aspiring soldiers to fall in line. After receiving their pots, each of them was given three seeds. Lark would scribble down something on a parchment after asking the name of the person in front of him. To Melody’s surprise, Lark also asked her to participate in his little test. The blonde young woman fell in line and also received her pot and seeds.
+
+After everyone received the seeds, Lark smiled. “Now, for the test. All of you will be tasked to cultivate those seeds. Make them grow – in four days.”
+
+The aspiring soldiers were stunned, definitely confused. They applied to be a soldier, not a farmer. Why was the young master asking them to grow some seeds?
+
+As though voicing everyone’s thoughts, someone asked, “Forgive my insolence, but young master, is this little test necessary? We’re… We’re not farmers.”
+
+Lark seemed to have expected this question. He nodded. “Of course. Listen, if you are unable to make those three seeds grow, you will fail the test. Only those that have successfully made all three seeds grow into a small plant
+within the time period will be allowed to join my personal army.” He looked at Melody and said, “The same goes for you.”
+
+The young woman nodded, saying that she understood.
+
+Lark cleared his throat. “Any questions?”
+
+After a period of silence, he said, “Farmers and builders, you are required to gather here tomorrow. As for the soldiers, come back here after four days. Bring the plants with you.”
+
+After those words, he dismissed them from the hall.
+
+Lark licked his lips and smiled. He was looking forward to the results four days from now.
+
+Chapter Seven
+
+
+
+
+Evander knew that he was dreaming as he watched the scene in front of his very eyes.
+
+A boy, probably five or six years old, was digging through the garden. His silver hair was a mess as his cerulean eyes smiled. Beads of sweat flowed down his face as he chuckled. Butterflies flew around, while birds chirped. It would have been a pristine sight if not for the cat in front of him.
+
+The cat was mutilated. Its ears were cut off while the skin was burnt in many places. Blood dripped down its opened mouth. Judging by the weak purrs, it was still barely alive.
+
+“Mister Cat, I told you to play with me, right?” said the boy. “You should have listened to me. This is your punishment. That’s right! Punishment!”
+
+The boy continued digging on the ground, his small hands scooping out the soil before him. After placing the cat inside the hole he dug, a young man came running towards him.
+
+The young man grabbed the boy’s collar, lifting him up. “Lark! What are you doing?! Didn’t I told you to stop killing the pets!?”
+
+“Big Brother?” said the boy, tilting his head. “What are you talking about? I’m just playing with the cat.”
+
+The boy smiled and the dream ended.
+
+After waking up, Evander slowly sat up on his bed. If he had known that the dream was going to be nasty, he would have cut it off right at the start.
+
+Somehow, he felt that the dream was part of the memories of his current body. He had never experienced taking over the body of another person before, so he was not sure.
+
+“That’s right, I’m Lark Marcus now,” he said with a sigh.
+
+He went towards the window and swept aside the curtains. Snow was still falling to the ground.
+After the job offer was issued, he supervised the construction project at the eastern border of the town. To his surprise, the workers did not complain at all. Thankfully, there was an abundance of wood and logs in this town due to the forest nearby. Those materials were left untouched due to the inclement weather, but with the help of the heat stones, the workers were able to immediately start the construction.
+
+He conjectured that since those houses would eventually be handed out to the locals, they felt motivated working on it. Furthermore, the heat stones have greatly shown its effect. Although it was unable to fully eliminate the snow and the cold, it enabled the workers to continue with the construction project despite the weather.
+
+Four days have passed since the recruitment. Now, it was time to assess the soldiers.
+
+
+***
+
+
+Qarat was crestfallen. Today was the deadline for the test the young master had given them. He had done anything he could, but for some reason, only one out of the three plants grew. He stared at the plant in the pot. It was small, almost inconspicuous, but it was the only successful one among the three.
+
+He shook his head. “I’m definitely going to fail the test. Maybe I should just consider being a farmer? The northern and western lands are barren, but the Young Master said that he has a way to reclaim those areas.”
+
+Being a farmer was not a bad idea, too. He could plow his fields and enjoy the harvest. Unlike the other regions of the Kingdom wherein battles frequently took place, Blackstone Town was a relatively peaceful area. There were very few cases wherein armies or bandits would loot the town. Being a farmer in this region was definitely safer than the other parts of the Kingdom.
+
+“But I can’t even grow a damn seed.” He smiled in self-mockery. “I’m probably not suited to become a farmer. Then, being a builder is the last choice.”
+Honestly, he was after the benefits of a soldier. Eleven silvers were a massive amount. Moreover, he was tempted by the offer of free meat. Although the job of a soldier involved life and death, this was Blackstone Town which was hardly visited by anyone. Even merchants would seldomly drop by this place since it had nothing to offer. If not for the Lion City located two days away, this town would have been isolated from the rest of the Kingdom.
+
+Qarat gripped his black, disheveled hair in frustration. He really wanted to be a soldier, but the test result was already obvious.
+
+He stared at the plant growing in the pot. He had been living in this town for two decades now. He was sure that the plant was called Cal Shrub. A common plant that would grow everywhere. Although it was not as ubiquitous as Poison Cloud, it was still relatively easy to find.
+
+An idea went to Qarat’s mind. “Since those three seeds are the same. If I just find a Cal Shrub on the ground, a small one, then plant it on the pot… Surely, the Young Master wouldn’t notice, right?”
+
+If he managed to do that, he would definitely pass the test. After all, he would be able to meet the requirement of making all three seeds grow.
+
+Qarat stood motionless inside the collapsed shack. The roof had fallen long ago due to the weight of piled up snow. Lost in his thoughts, he ignored the assault of the freezing snow.
+
+After some time, Qarat sighed. A steam puffed out of his mouth. “Forget it. I’ll feel bad if I passed the test like that. If I can’t become a soldier or a farmer, I can still apply for the position of a builder. The Young Master said so before.”
+
+After steeling his resolve, Qarat wrapped his body in a thin blanket, grabbed the pot, then went towards the Mansion.
+
+On his way towards the place, he saw some of the aspiring soldiers carrying the pots in their hands. They held it as though it was something precious, as though their lives depended on it.
+
+To Qarat’s dismay, he saw some of them with three Cal Shrubs growing on the pots.
+All three of their seeds grew. Damn it.
+
+He gnashed his teeth as he tried brushing off the bitterness in his heart. Upon arrival in the Mansion, they once again gathered in the hall. The Young Master was already there, with the old butler at his side.
+The young master counted their numbers then nodded afterwards. He said, “Good. It seems that everyone’s here. So, how was it? Did you enjoy my little test?”
+
+The Lord was definitely young, probably fifteen or sixteen years old, but Qarat would sometimes wonder why his gaze was full and deep, as though it held wisdom borne from decades of living. It was a stark contrast to the Young Master he had met a few months ago. The playful and arrogant Lark Marcus had totally vanished.
+
+The aspiring soldiers simply nodded at the Young Master’s remark.
+
+After spreading his hands, Lark grinned, “Then, let’s start the assessment.”
+
+The butler told everyone to fall in line, while the young master grabbed a large piece of parchment in his hand. The first in line was a tall man with bony cheeks. His face was full of confidence as he held the pot in his hands. Inside the pot, three Cal Shrubs grew.
+
+The man did not even get to speak when the young master suddenly said, “Failed. Next.”
+
+Upon hearing those words, Qarat was baffled. The man clearly had successfully grown three plants. So, why did he fail? It was the question that rattled his mind, and Qarat was sure that it was the same question currently going through everyone’s mind.
+
+The man gulped down the lump in his throat, looked at the pot he was holding, then asked, “Young Master? What do you mean ‘failed’?”
+
+The Young Master narrowed his eyes. “Didn’t you hear me? I said you failed the test.”
+
+“But! I have grown all three seeds! Look!” The man raised the pot so that the young master could see it clearly.
+
+“That’s the point,” said the Young Master. “One of those seeds are defective, dead, unable to grow. You’ve grown three of them. You’ve
+clearly cheated.”
+
+The man froze upon hearing this. Qarat noticed that those that grew three plants were restless. Slowly, hope rekindled within Qarat’s heart.
+
+The Young Master said that one of those seeds was defective. Then maybe the reason why my other seeds didn’t grow…
+
+Qarat was soon filled with excitement. The job as a soldier might not be out of reach after all.
+
+“Listen, what is the most important aspect of being a soldier?” said Lark. At this question, everyone turned silent. “Strength? Stamina? Wealth? No. It’s credibility. The rest are secondary. A soldier is not simply a killing machine, a creature meant to subdue another. A soldier is someone that ensures the safety of the sovereign. If the core is rotten, so will be the body.”
+
+A surge of heat flowed through Qarat’s chest upon hearing that speech. He could feel his heart start to pound loudly.
+
+The most important is not strength. It’s credibility. The rest are secondary.
+
+Those words kept resounding within Qarat’s mind.
+
+“We can train your body. We can train your skills. We can train your spirit,” said Lark. “But we cannot train character. That’s the purpose of this test.”
+
+One after another, the aspiring soldiers were judged by the Young Master. Soon, it became Qarat’s turn. The hairs on his brown skin stood upon facing the Young Master. He was nervous. He simply wished he would pass.
+
+Once I passed, I can eat meat every four days. That would be paradise.
+
+To a commoner like him, meat was a luxury he could only dream of. Unless the hunter next door shared the prey he had caught, Qarat was unable to eat meat at all. Just imagining the free meat made him salivate.
+
+“Name?” said Lark.
+
+With a trembling voice, Qarat replied, “Q-Qarat,”
+
+Lark looked at the pot Qarat was holding then at the parchment. He smiled, tapped Qarat’s shoulders then said, “You’ve passed. Congrats.”
+Hearing this, Qarat could barely suppress his happiness. He bowed his head and said, “Thank you, Young Master.”
+
+The young master merely chuckled, “The training for soldiers will be harsh. Ready yourself.”
+
+“Yes! I will do my best!”
+
+After the assessment, out of the fifteen aspirants, only nine successfully passed the exam.
+
+Lark clapped his hands. “I will skip the formalities. Starting today, we shall immediately begin your training.”
+
+Chapter Eight
+
+Clark, a middle-aged man wearing leather armor, silently watched as the Young Master made his assessment of the soldiers. As the Head of the Guards, his priority was the safety of the young noble. But honestly speaking, he did not like the Young Master at all. The second son of Lord Drakus was a total brat. There had been numerous times wherein Clark could not help but ask himself how a person could be so evil, so hedonistic, that there seemed no chance for redemption.
+
+If he could, he would have left this small town long ago. But since it was an order from his beloved master, Lord Drakus, he steeled his resolve to stay until the end. Clark repeatedly convinced himself that he should endure this and carry out his duty faithfully.
+
+What is the brat thinking, suddenly recruiting soldiers?
+
+Clark sighed. Near him, he could also see the expressions of the other guards. They were also probably confused of the sudden change in the Young Master these past few days. For some unknown reason, he suddenly started giving out free food to the starving residents. When Clark first heard of it, he laughed at the absurdity of the news. But after seeing the servants actually distributing the wheat porridge, his jaw slacked in wonder.
+
+“Let’s skip the formalities,” said the Young Master. “Let’s immediately start with training.”
+
+Clark frowned. He knew that the Young Master was incredibly weak. Whenever the Young Master got into trouble, he would come running to the guards to ask for help. Although clearly annoyed and hesitant, the guards would always answer his call. Just like Clark, the other seven guards were loyal to Lord Drakus. Otherwise, they would have left this town long ago.
+
+The servants appeared, carrying with them numerous spears. Clark was sure that there were no such weapons in the Mansion, even in the underground basement. He started wondering where they got hold of them.
+
+“Clark—,” said the Young Master. “—And the rest of the guards. Come over here.”
+Upon the order, Clark and the other guards went towards the young master. At the corner of their eyes, they could see the spears being handed out to each soldier.
+
+“Young master, you called?” said Clark.
+
+Lark nodded. “The eight of you will join the training. No exemptions.” The guards looked at each other.
+
+“What do you mean, Young Master?” said Clark, clearly confused of what was happening.
+
+Lark sighed. He pointed at the soldiers holding a spear. The shaft was made of wood while the blade was made of iron. “Get a spear, all of you. Then join those guys.”
+
+“We’re joining the training too?” said one of the guards.
+
+“That’s right,” said Lark. They could see the annoyed stare of the Young Master. “That’s an order. Go.”
+
+After a few moments of hesitation, the guards grabbed a spear then joined the soldiers. As one of the guards belonging to the Marcus Family, each of them have fairly decent strength. They were confident that even if all of these “soldiers” were to fight them, they would easily emerge victorious in the end. They felt that it was a waste of time to be joining the training of these soldiers which, just a few moments ago, were ordinary residents of Blackstone Town.
+
+‘I guess this is better than taking care of the mess the Young Master makes whenever he gets into a fight in the town. That’s right. This is probably better.’ Clark consoled himself with these thoughts.
+
+“Uhm, Young Master?” said one of the soldiers. “Are you the one who’s going to train us?”
+
+Clark almost chuckled. What a stupid question. Of course, the one training them would be somebody else. What would the frail Young Master know about battle, after all?
+
+“Yes, that’s correct,” replied Lark.
+The shock within the eyes of the guards, including Clark, was evident. Some of them tried to open their mouth and speak, but eventually chose to stay silent in the end. The guards all knew the temperament of the Young Master. One wrong move and they would be the target of ridicule and punishment.
+
+“Of course, since I’ll be the one teaching you,” said Lark. “It’s only proper that I display my skills before everyone. It’ll be hard to follow the instructions of a sheltered noble, after all.”
+
+Although everyone was silent, they all nodded within their minds. They did not feel like being taught by someone who was clearly weaker than them.
+
+Lark gripped the shaft of his spear. “After a year, I hope that everyone will be able to do at least this much.”
+
+Suddenly, a strong killing intent filled the entire hall. Although Clark had been working as a guard for the Marcus Family, he had never once felt such savage sensation in his life. It was as though someone was devouring him whole, like he was a prey meant merely for entertainment. Even the Royal Knights in the Capital did not give such vehement bloodlust.
+
+Clark’s legs started trembling as the hair on his skin rose. Sweat started forming on his face. His throat started to become dry. He knew this sensation well:
+
+It was fear.
+
+If I, the Head of the Guards, is like this…. Then...
+
+Just like he had expected, the others were no better than him. The other guards were pallid, as though all the blood in their body were drained. The soldiers, on the other hand, were trembling violently. There were even some of them that pissed their pants.
+
+“Now, let’s start,” said Lark.
+
+The strong killing intent vanished entirely. Lark gripped the spear then began stabbing through the air. The moment the blade made a piercing sound, he would immediately twist his wrist, change the grip by releasing one hand, then strike once again. The spear bent wide into different
+directions, piercing the air numerous times. It was like a moving snake, changing its direction at the last moment.
+
+If that was a real opponent. A human with flesh and bones…
+
+Clark could only imagine the outcome. He knew that even he would be unable to dodge those everchanging strikes.
+
+“So, how’s it?” said Lark, grinning. He playfully spun the spear on his hand. “I tried slowing down the movements so that everyone would be able to easily see.”
+
+Clark’s eyes widened after the casual remark.
+
+He was actually holding back so we’ll be able to follow it?!
+
+Although Clark wanted to refute the statement, at the corner of his heart, he felt that it was true. The bloodlust shown by the Young Master was utterly abnormal. There was no way a normal person was capable of that.
+
+Then, a question came up. If the Young Master was actually this strong, then why did he always run towards the guards whenever trouble came up? Even back in the Gryphon City, the Young Master was always like that.
+
+He would always make trouble, and his personal guards would always have to clean after him.
+
+More and more questions piled up, and Clark was unable to answer each of them. In these past few days, the Young Master he knew became a different person entirely. Not only in the demonstrated skills, even the way he addressed other people had changed.
+
+Lark clapped his hands once. “It’s too early to be teaching you spearmanship. First, we will focus on training your bodies. After all, the basics are the most important.”
+
+The hall was silent. Everyone could still vividly remember the spearmanship the young master has shown them. It was beautiful yet deadly, like a dance with blades and swords.
+
+“While carrying the spear in your hand,” said Lark, demonstrating the proper way of holding the spear. “Run around this hall. Three hundred times.”
+The hall of the mansion was vast, and it would take them half a minute at most to run around it. Just thinking about running around it three hundred times was already tiring.
+
+Lark grinned. “Those that are able to finish the task will receive dried fish for lunch.”
+
+“I-Is that true?!” said one of the soldiers.
+
+“Of course.” Lark nodded. “You have my word. Furthermore, the first to finish will get an egg.”
+
+Numerous gulping sounds were heard.
+
+A fierce blaze filled the eyes of everyone.
+
+“Let’s start.”
+
+After a clap, everyone started running around the hall while holding a spear in their hand.
+
+***
+
+While the soldiers were training, Lark approached Melody. She, too, passed the ‘seed’ test.
+
+“It’s a refreshing sight, isn’t it?” said Lark. Melody bowed her head upon making eye contact. “Once winter ends, they can start training outside. Also, I’m planning to recruit more soldiers by that time. The number right now is simply not enough.” He stared at her for a moment. “Melody, I want you to work for me.”
+
+A straight offer.
+
+Melody had heard of the evil deeds of the Young Master before. Honestly speaking, she did not want to work for such a person. But since she was homeless and jobless, just like others that came from Lion City, she was left with no choice.
+
+“Payment will be fifteen silvers a month. Free meals, three times a day,” said Lark. “You will also be given a house once the construction in the eastern border is finished. Of course, depending on your performance, a raise is not out of the question.”
+The offer was extravagant. Even when she had been working for the mistress back in Lion City, the amount was not that high.
+
+“Y-Young Master, what kind of job is it?” she asked in a slightly trembling voice. If the young master suddenly told her to service him during the night, she would immediately reject the offer. No matter how many silvers were offered, she would never offer him her body.
+
+“I want you to teach the soldiers how to read and write,” said Lark.
+
+His gaze went towards the soldiers running around. By now, they were terribly huffing, but probably due to the reward of dried fish, they kept running. The guards, on the other hand, did not want to lose to the ‘soldiers’.
+
+Lark smiled in amusement upon seeing this.
+
+“Read and write?” breathed Melody, her voice almost a whisper filled with uncertainty.
+
+It was common for soldiers to be illiterate. After all, only nobles were able to afford basic education. She had never heard of someone training common soldiers such advanced skills.
+
+Lark nodded. “Knowledge is a powerful weapon. Though a lot of people may disagree with me, the soldiers definitely need to learn at least this much.”
+
+He saw that one of the soldiers was about to give up. He shouted, “Only those that finished three hundred laps will receive dried fish! Remember that!”
+
+Upon hearing it, the soldier fiercely looked ahead and continued running. Lark chuckled, “Good! Keep going!”
+
+“So, how about it?” said Lark to Melody. “Would you teach the soldiers for me?”
+
+There was a moment of hesitation. Melody carefully said, “I can teach them, probably… but Young Master, you… you won’t ask me for anything else, right?”
+
+Lark slightly titled his head. “Of course, that’s not all.”
+Melody shivered. She was determined to immediately reject him if he asked for ‘that’.
+
+“You will be required to learn arithmetic, together with Gaston,” said the Young Master. “I plan to expand this town further. To do that, I need capable vassals.”
+
+“Arithmetic…” her voice trailed off.
+
+It was a popular skill known by all merchants. Just the thought that she would learn such skill made the offer enticing. After all, even some of the nobles did not know of it.
+
+Melody considered all possible scenarios. After weighting the pros and the cons, she swallowed the lump in her throat then slowly nodded. “I accept the offer, Young Master.”
+
+Chapter Nine
+
+
+
+
+After the training, the soldiers and the guards fell down the ground like stringless puppets. Their entire body was drenched in sweat, and their chests rapidly rose and fell in succession. The heavy spear they carried made running around the vast hall arduous, almost excruciating.
+
+To Lark’s surprise, aside from the three soldiers that fainted from exhaustion, everyone finished the task. As promised, he gave each of them a lavish meal with a dried fish included. Everyone immediately regained their vigor upon seeing the food. Some of them even drooled like rabid dogs. Great food after a rigorous task was definitely more delicious.
+
+Seeing this, Lark was clearly amused.
+
+While everyone was eating, Lark clapped his hands once. “As promised, the one who finished first, aside from dried fish, will also get an extra egg.” On his signal, a servant came and brought out a boiled egg. She gently placed it on the plate of Clark, the Head of the Guards.
+
+Seeing the envious looks of the soldiers on him, Clark smirked and slowly ate his prize. Now that they were in the middle of winter, eggs were a luxury.
+
+“Damn, to be eating wheat porridge with both dried fish and egg.” “The Head Guard is so lucky.”
+
+“Hey, just think of the guys that are still unconscious over there. At least we get to receive a reward.”
+
+The soldiers looked at their unconscious comrades, their eyes filled with pity.
+
+Lark cleared his throat. “For now, everyone will rest for an hour,” he said. “After that, all of you shall proceed to the room on the second floor to receive further training.”
+
+At the words ‘further training,’ everyone stiffened. They looked at the young master as though he was the devil incarnate. Making them run
+around the hall three hundred times while holding a spear was already excruciating enough, and now, they were supposed to attend more of those stuff?
+
+The soldiers wanted to protest and grumble, but they were afraid that the porridge and dried fish would be taken away from them if they complained. In the end, they all shut their mouths, except for one – the Head of the Guards.
+
+“Young Master,” said Clark carefully. He knew that the room on the second floor was a bit small for training. “What kind of training is it?”
+
+The young master smiled. “Basic Education. We will be teaching you guys how to read and write.”
+
+
+
+
+***
+
+
+Night came. Under the light of the candle-filled candelabra, Lark reread the documents Gaston handed to him a couple of days ago. Although Reading Magic enabled him to read at a relatively faster rate, comprehending everything at one go was still impossible. Lark once again checked the documents and reports that seemed confusing or suspicious. Currently, his attention was on the number of deaths in Blackstone Town.
+
+“Five hunters died last year,” mumbled Lark as he contemplated.
+
+The number was actually small considering the risk of the profession. To the citizens of Blackstone Town, a hunter being killed by its prey was a normal occurrence, especially considering the fact that the Endless Forest was uncharted territory. Although fierce animals seldomly attack the town, it was an entirely different thing for hunters who purposely look for such beasts.
+
+Everyone simply dismissed the deaths of the hunters as natural, a consequence of the job. But after analyzing the reports, Lark found out a peculiar point – they all died in the eastern part of the Endless Forest.
+Currently, the eastern part of Blackstone Town was the place Lark was trying to expand. After it reached a certain size, he planned on clearing out some trees in the Endless Forest.
+
+“Gaston said that the deaths of the hunters last year must have been a coincidence,” said Lark. He had consulted the old butler for his opinion this afternoon. “But the state of the bodies… all of the wounds are quite identical.”
+
+Lark could not rest easy until he confirmed the authenticity of the state of things himself. He donned a black cloak, swept aside the curtains, then opened the windows. The night breeze brushed against his body.
+
+The entire town was sleeping.
+
+Lark breathed in the night air, amplified the strength of his body using mana, then jumped out the window. He landed with a soft, thud sound. After checking that there was no one around, he quickly ran outside. His body blurred as he sped through the empty streets, his cloak violently fluttering.
+
+Eventually, he arrived at the eastern border of Blackstone Town. He saw some builders resting near the half-constructed houses, their chatters heard through the quiet night. Since several Heat Stones have been installed in this area, the workers were able to stay outside.
+
+“The construction project is going smoothly.” Lark smiled. “Good.”
+
+Although the workers were amateurs, under the guidance of Lark, they were able to build decent houses. It was not as good the houses in major cities, but they were definitely better than the shacks frequently seen here and there. At the very least, each of these half-constructed houses were built with wood and stones. Those houses would not easily collapse from the weight of snow, leaving them homeless during winter.
+
+Lark once again moved forward, towards the eastern part of the Endless Forest. Upon reaching the place, the darkness of the night swallowed him entirely. The canopies of leaves blocked the moon above, amplifying the darkness of the night. The sound of insects and ravens filled the forest.
+
+Now, let’s see. There should be something here. I don’t believe the deaths of those 5 hunters last year are mere coincidence.
+Deep within his heart, he sincerely wished that it was actually a mere coincidence, but his instinct was telling him that there was something dangerous in this place. After searching the area using magic, his instinct was proven right.
+
+Over there.
+
+His body shot forward, skillfully moving past the root-blanketed ground. After a few minutes, he arrived at the entrance of a small cavern. If a normal person was around this part, they would not easily see it due to the vines that blocked the view.
+
+Lark once again scanned the area using magic. But this time, he focused it inside the cavern.
+
+His brows rose when he detected numerous presences inside. At the very least, there were around fifty of them.
+
+Lark erased his presence, cast concealment magic, then entered the cavern. Although it was very dark inside, he was able to see the flow of mana. Whatever was inside this cavern, they were definitely not humans. The flow of mana clearly told him that.
+
+As soon as Lark entered the cavern, putrid stench assaulted him. He frowned, crinkled his nose, but kept walking. Eventually, he saw the identity of the creatures living inside.
+
+“Goblins,” the name of the monsters came out naturally in a whisper. Some of them were walking around, rummaging through the piles of loots here and there, while some simply sat on the ground. The nocturnal monsters failed to notice that someone was observing them.
+
+Lark looked around, but it seemed that that there was no Hobgoblin or Shamans. He was amazed that despite having no leader, this group was able to live in this place for so long. Judging by the reports, these creatures never once attacked Blackstone Town.
+
+Still, Lark was not naïve. Although these creatures may seem harmless if they took those reports into consideration, they would definitely kill the humans if given the chance. They were probably unable to attack the human settlements because of the lack of a leader. This was a rare thing, even back in Lark’s previous life.
+The hunters must have encountered these creatures and died. That should explain why all 5 of them died in this part of the forest.
+
+For now, Lark decided to leave the group alone. Once he had trained the soldiers, he would issue a subjugation order to eliminate these monsters. After all, real life battle was different from training. Lark decided to make these weak creatures the stepping stone for the growth of his men.
+
+Of course, if these creatures suddenly decided to invade the town, He would immediately eliminate them there and then. No questions asked.
+
+As Lark was about to leave the cavern, he noticed something glimmering near the walls. He increased the flow of mana within his eyes to see better in the dark.
+
+Kalrane Gemstones?!
+
+Lark’s lips visibly rose. For the past few days, he had been pondering on how to solve the current lack of funds for Blackstone Town. Tiling the soil and planting the wheats take time, and it would be several months more before they would be able to reap the harvest. Although Lark still have a lot of gold coins given to him by his father, it would run out sooner or later.
+
+He wanted to find a way to compensate for the lack of funds. But in this town which literally had nothing to offer, he found it hard to find one.
+
+Finally! A product that could become the town’s specialty!
+
+Lark licked his lips in anticipation. He could already envision it. Workers from Blackstone Town gathering Kalranes. Merchants coming and going out of the town to buy them. He could already hear the clanking sound of gold coins.
+
+He looked at the Goblins. At first, he wanted to leave them alone until the soldiers were strong enough to subdue them, but now, he decided to act sooner. Although it would be dangerous for the trainees, Lark would accompany them. He would definitely not let anyone die during the encounter.
+
+
+***
+In the morning, Lark summoned Gaston into his room.
+
+“You called for me, Young Master?” said the old butler.
+
+The young master was sitting at his table, scribbling something down on a notebook. After the butler entered, he closed the notebook then smiled.
+
+“Just in time,” said Lark. “Here, take a look.”
+
+The old butler received a parchment from the young master. There were numerous things listed inside.
+
+“This is…”
+
+“I want you to send a couple of servants, along with some guards, to Lion City and buy those for me,” said Lark. He took a sip from the goblet and stared at the butler. “I want you to prioritize the seeds and the iron ingots. We aren’t really in surplus of funds, so I want you to buy those two first before anything else.”
+
+Since Lark was not really aware of the prices in the Lion’s City, he could only surmise using gathered data from his subordinates.
+
+Gaston looked at the list once again. It was an amazing list with some items he had never heard of before. Wheat seeds, iron ingots, hemp ropes, loi saplings, ormatane dust, and many more.
+
+Gaston mumbled, “A thousand eggs.”
+
+He read it again then asked the young master, “Sorry for the impudence, but young master, isn’t a thousand eggs a bit… unnecessary?”
+Gaston knew the state of the town. There was no way the residents would be able to afford eggs right now. Without doubt, the eggs would eventually rot in the storage.
+
+“it’s fine,” said Lark, dismissing the remark. “Just do what I say.”
+
+Lark actually planned on using magic on those eggs and force them to hatch. After all, eggs would be cheaper than poultry.
+
+Gaston felt that the amount of wheat seeds and iron ingots were absurd too. If they actually went ahead with this list, they would end up buying a large portion of the wheat seeds in Lion City. Furthermore, the amount of iron ingots was enough to build armor for more than a dozen knights.
+The old butler felt that the Young Master was squandering his money.
+
+“Young master, please reconsider,” said Gaston. “The amount of seeds is too much. The lands of this town are mostly barren. As for the iron ingots, there’s no blacksmith living in this place. Even if we buy those things, they’ll only become unnecessary expenses.”
+
+Lark creased his brows. He sighed then leaned on his chair. “Listen, when I told everyone that I’m going to reclaim the lands in the north and the west, I meant it. Once winter ends, I plan on making a large-scale farming project in those areas. To do that, we need at least this much wheat seeds. Do you understand?”
+
+Gaston was clearly not fully convinced, but he nodded regardless. Still, the old butler did not immediately back down. “As for the iron ingots. Young master, there’s no sense in buying raw materials when there’s not even a single blacksmith in town.”
+
+“We have a solution for that,” said Lark. He was actually planning on using the iron ingots to make farming and mining tools. He planned to include some weapons too. Still, he did not tell the old butler his thoughts. After all, he was going to transmute those raw materials into high grade tools using magic. It was better, at this current time, for the other party not to know.
+
+Lark grabbed a large pouch from the drawer then handed it to the butler. “For now, just do what I say.”
+
+Gaston opened the pouch. Numerous gold coins were inside. He grimaced upon thinking that these would soon be spent on useless things. The list of the young master was simply unreasonable.
+
+After a long sigh, Gaston bowed. “I will do as the young master says.” He bit his lips. “This old man shall obey.”
+
+He took a peek at the young master. He remembered the reports he received just a few hours ago. According to the “inquisitors” hired by Silver Hand, the Young Master was the one who subdued those men that kidnapped him. They all mentioned the use of magic – silent magic. This single fact alone was hard to believe, since even among the Royal Court Magicians, only a handful knew how to perform such complex technique.
+But Silver Hand has no reason to lie. And I was also there when the leader of those scums finally confessed. But… it doesn’t make sense. I’ve been with the Young Master since he was born. He knows nothing but the most basic of magic – the mandatory education required by the Duke.
+
+The old man breathed in.
+
+“Young master?” said Gaston.
+
+Lark noticed that the butler had been staring at him for quite some time now. “What is it?”
+
+Seconds passed. Gaston sighed.
+
+“Nothing,” said the butler. “Just some useless thoughts of an old man.”
+
+“Gaston, you’re becoming a little thin lately,” said Lark, his brows creased in worry. “Be sure to take some rest every now and then. If you need a vacation, be sure to tell me.”
+
+Gaston softly smiled at the concern shown by the young lord.
+
+That’s right. So what if the young master knows silent magic? Even if it’s true that he did subdue those kidnappers, it doesn’t change a thing. I’ve vowed to serve him the moment he was born. Nothing will change that. This old man shall see things through until the very end.
+
+“There’s no need for the Young Master to worry,” smiled Gaston. “This servant is perfectly fine. Then—” he made a bow. “If you’ll excuse me.”
+
+As Gaston was about to go out of the room, the young master called out to him.
+
+“Ah, I almost forgot,” said Lark. He stood up then handed the old butler two notebooks. “Here. Give the other one to Melody.”
+
+Gaston adjusted his monocles as he stared at the notebooks. “What are these, Young Master?”
+
+“Basic Arithmetic,” said Lark. “I wrote them down myself.”
+
+Chapter Ten
+
+
+
+
+Silver Claw restlessly moved around in his house. He pulled open the cupboard then grabbed the small pot inside. After checking its contents, he groaned. It was empty.
+
+“F-Father!” cried a small, weak voice.
+
+Silver Claw hastily tossed the pot towards the ground, breaking it to numerous pieces, then ran towards the bed. He was violently trembling, face drained of all color as he looked at his daughter.
+
+“J-Just a bit more! Hold on just a bit more! Father will surely find more herbs for Anisette!” he frantically said.
+
+The entire body of his daughter was skin and bones. Furthermore, numerous patches of brown and black was spreading all over her skin. Her eyes were white and sunken. Some of the neighbors speculated that she had been possessed by evil spirits, while those that knew better said that she was inflicted by the Seven Weeks Disease. It was a disease that would always take away the life of a person on the seventh week. Although it was not contagious, its origin was unknown. Silver Claw had tried all treatments available to him. In the end, all he could do was alleviate the pain by using expensive herbs.
+
+He held the head of his daughter and helped her sip water from a cup. The thin girl coughed numerous times, tears coming out of her eyes. After some time, she eventually fell asleep.
+
+Silver Claw looked at the figure of his only family. He could not help but groan in frustration. He knew that even in the Royal Capital, there was no one capable of healing this disease. He even heard of the news three years ago when a noble died because of the Seven Weeks Disease.
+
+Still, even if there was no way of curing her, as a father, he wanted to alleviate the pain as much as possible.
+
+I need to visit Herbalist Mores’ house.
+Silver Claw donned his coat then left the house. It had temporarily stopped snowing. The sun above shone, unobstructed by any clouds. Winter was going to end soon.
+
+With heavy steps, he traversed the streets; his goal was the Herbalist’s house.
+
+Along the way, he passed by the Plaza. He stared at the crowd that gathered. They were all looking at a large wooden board. Pinned to it was a parchment with numerous things written inside.
+
+They can’t even read. Why are they crowding around it?
+
+“Is it true that the Young Master will pay us six silvers a month if we worked for him?”
+
+“Of course,” said an old man. After staring at him for a while, Silver Claw realized that he was the butler working in the Mansion. Beside him was a servant. “The Young Master needs not only farmers. He’s also in need of Builders, Poultry breeders, Soldiers, and Miners.”
+
+Silver Claw frowned upon hearing those words. It seemed that the Mansion was trying to hire workers en masse.
+
+How stupid. Poultry breeders? Miners?
+
+Silver Claw was well aware that there were no mines in Blackstone Town. He had lived here for fifteen years. He was sure. He could only snort and snicker at the thought. As expected, nobles were full of lies. This was the same reason why he moved from Lion City to this isolated town. At the very least, there were no nobles living here. Well, that changed half a year ago when the second son of the Marcus Family was sent to govern this territory.
+
+That brat will leave this place soon anyway. Someone like that will never stay in a town like this. Let’s just hope he leaves sooner. This town doesn’t need an incompetent ruler.
+
+After passing through the Plaza, Silver Claw finally reached his destination.
+
+He knocked twice on the wooden door of the house.
+
+“It’s me, Silver Claw,” he said.
+A few seconds after, a shabby-looking young man peeked through the door. After seeing that it was indeed Silver Claw, he opened it wide then smiled. “Ah, it’s you.”
+
+Silver Claw was pressed for time. He went straight to the point. “I need more Purple Plumes.”
+
+The Herbalist frowned. “So soon? But… the Purple Plumes I’ve given you yesterday’s the last one.”
+
+“Wait! That can’t be! You must have more inside the storage!” said Silver Claw, his voice agitated. “I’ll help you look inside!”
+
+When he was about to intrude, Mores stopped him at the entrance. The Herbalist leaked a sigh, his eyes filled with understanding. “Listen, I understand your situation, but there’s really no more Purple Plumes available at this moment.” He lowered his head. “I’m really sorry, Silver Claw.”
+
+Silver Claw knew that in this weather, finding Purple Plumes would be really hard. It was something that usually grew deep within the western part of the Endless Forest. One would first need to cross the Rile River, which was freezingly cold right now, before reaching the place.
+
+“I see,” said Silver Claw. He gripped tightly the pouch he held in his hand. After receiving a commission from the Mansion to create stone tablets, he had quite a decent amount of money right now. But all of it proved useless since the herbs themselves were unavailable.
+
+“My friend, once I find a Purple Plume, I’ll personally deliver it to you,” said Mores. He knew the situation of Silver Claw’s daughter and sincerely wished to help.
+
+“Thank you,” said Silver Claw. He turned around then went back. Along the way, he once again passed by the Plaza. The butler was still there, answering the questions of the citizens. But this time, Silver Claw no longer listened to the speech. His thoughts were elsewhere.
+
+Mores is unable to go deep within the Endless Forest because of the weather. I have to do it myself. It doesn’t matter if it’s dangerous. I have to find Purple Plumes for Anisette.
+When he reached his house, he was surprised to find a hooded figure standing at the door. The figure looked at him and said, “Are you Silver Claw?”
+
+The voice was that of a young man. Silver Claw frowned. “Yes, I am.”
+
+The figure pulled down the hood, revealing his silver hair. His deep blue eyes stared at Silver Claw’s.
+
+“You’re…”
+
+Why is the Young Master here?
+
+“Silver Claw, I plan on developing this town,” the young master went directly to the point. “I want you to work for me.”
+
+Silver Claw gritted his teeth. He was annoyed at the time wasted with the current conversation. He needed to go to the Endless Forest now. Still, he tried to be courteous to the noble.
+
+“I’m sorry, but I will have to refuse, Young Master,” said Silver Claw. He took out his keys then approached the door. The young master slowly stepped aside. The knob twisted open and the door creaked.
+
+“Is that so?” said the young master. “Could you tell me why?”
+
+Damn it. Just go away already. It’s useless to speak with a stupid noble like you. My daughter needs me right now!
+
+“Young Master,” exhaled the mason, “Forgive the impudence, but let us have this conversation at another time. Please.”
+
+“I heard that your daughter is sick,” said the Young Master. He looked through the opened door. “Is that the reason why you wouldn’t work for me?”
+
+Upon the mention of his daughter, a vein appeared on the mason’s forehead. Still, he contained his anger. Each second wasted here would mean more pain for Anisette. He need to drive away the Young Master as soon as possible and go towards the Endless Forest.
+
+“That’s right,” said Silver Claw. “I can probably accept small commissions like the stone tablets from before… but working directly for the Young Master is a no. I simply cannot leave this place. My daughter needs me.”
+“Then, if I heal her for you, will you work for me?” said the young master.
+
+The question was thrown out casually, as though it was nothing but a simple task. At this, Silver Claw’s eyes broadly widened.
+
+A few seconds of silence befell them.
+
+“If you can heal her, I will serve you for life,” said Silver Claw. He almost snorted. “But that’s impossible, Young Master. Not even the Court Magicians know how to cure the Seven Weeks Disease. Now, if you’ll excuse me—”
+
+“—Excellent! So you’ll work for me then!” clapped the Young Master. The noble forced his way in then went towards the bedroom. Silver Claw hurriedly rushed after him.
+
+“Wait!” shouted Silver Claw. He wanted to strangle the damn noble but restrained himself. “What are you doing?!”
+
+The Young Master stared at the sleeping girl lying on the bed. Her arms were skeletal, as though she had not eaten for months. The numerous patches of brown and black that spread all over her skin gave her the appearance of a corpse.
+
+“I’ve analyzed the flow of mana while outside,” mumbled the Young Master. “As expected. This is that disease, huh? Then, this should be easy enough.”
+
+“You call this the Seven Weeks Disease here?” inquired the Young Master. "Please do forgive me for this."
+
+Silver Claw had yet to respond when the Young Master suddenly unbuttoned the dress of his daughter.
+
+“You! What are you doing!?” snarled Silver Claw. He was about to grab the young master and throw him outside when suddenly, vines shot from the ground and twined around his body. He could not move from his spot.
+
+“Calm down.” The Young Master looked at him for a moment. “I need to undress your daughter for the treatment to work.”
+
+Silver Claw was livid. “You damn bastard! You fucking bastard! If you dare touch my daughter, I’ll kill you! I swear! I’ll kill you!”
+Silver Claw’s voice reverberated. His entire body was red with fury. He knew of the notorious reputation of the Young Master. This noble before him was a demon that would sexually assault women without hesitation.
+
+Silver Claw wanted to pounce at him and tear him to pieces, but the vines held his body tightly. He could not even move a single step. All he could do was spout out curses while the Young Master undressed his daughter.
+
+The young master touched the girl’s forehead, and a faint light appeared on his fingertips. Numerous veins of light appeared from it, slithering down towards the body. Slowly, the black and brown patches started to fade, revealing the girl’s pale skin.
+
+“In the place where I previously lived, we call this the Mushroom’s Revenge. A funny name, isn’t it?” chuckled the Young Master. “Look.”
+
+On the girl’s chest, knees, and arms, numerous brown and black mushrooms started sprouting.
+
+“The patches on her skin are because of these things,” said the Young Master. He started plucking out the mushrooms one by one. Surprisingly, no wound appeared on the girl’s body. “There are three ways to heal someone with Mushroom’s Revenge. First, Tears of Ubroxia. I doubt those rare plants grow in this region, so that’s out of the equation. Second, burn the entire body then heal it using magic. That way, the roots of the mushrooms will die from the heat. Third is this method I am doing right now. Force the mushrooms to sprout using magic then pluck them out.”
+
+In the Magic Empire, a lot of magicians were capable of the third method, that’s why Mushroom’s Revenge was a fairly easy disease to treat. But it seemed that in this Kingdom, it was a disease with absolute fatality. Lark sighed at this thought.
+
+After plucking out all of the mushrooms, Lark released the vines binding the mason. The plants slowly went back towards the ground.
+
+Silver Claw immediately ran towards his daughter. He was huffing, eyes red from anxiety. After staring at her for some time, he finally spoke.
+“Is… Is she really healed?” he said in disbelief. He could clearly see that the pained expression on her face was gone.
+“Yes, she is.”
+
+Sobbing sounds were heard inside the stone house. It had already been six weeks since Anisette acquired the disease. Helpless beyond words, the Mason thought that her daughter would leave his arms soon. After all, it was a disease said to be without cure.
+
+After some time, Lark said, “Before she got the Seven Weeks Disease, did she go somewhere? Like… the Endless Forest?”
+
+Now that Silver Claw thought of it, she did go to that place before the symptoms appeared. She was picking berries near the forest.
+
+“Yes, she did,” nodded Silver Claw.
+
+“I see. So those mushrooms grow in that place, huh?” said Lark. He took one of the mushrooms he plucked from the girl’s body then showed it to the Mason. “These things are capable of growing inside the body of humans. Your daughter must have eaten one of these when she went to the forest.”
+
+Everything finally made sense. Why his daughter suddenly fell ill after that day. Why those black and brown patches suddenly spread through her entire body. Silver Claw felt that ‘Mushroom’s Revenge’ was a really fitting name.
+
+Silver Claw grabbed the sheet and covered the naked body of his daughter.
+
+He looked at the young man standing next to the bed.
+
+Silver Claw had met the Young Master before when the noble first came to Blackstone Town. During that time, he got into a tussle with some man. The reason: the man accidentally splashed mud on the hem of the young master’s clothes. It was a petty squabble in everyone’s eyes, and during that time, Silver Claw immediately judged the Young Master to be incompetent and arrogant.
+
+He’s grown so much during the past few months.
+
+The young master before him seemed so different, as though he was another person entirely. The arrogant eyes from before was now filled with confidence, and peculiarly, strength seeped through it.
+
+Seeing his gaze, the Young Master smiled.
+
+“A promise is a promise,” said Lark.
+After a sigh, Silver Claw nodded his head. “You’ve healed my daughter. I’ll listen to your request.”
+
+Although Silver Claw still held questions on why the Young Master was so proficient in magic, he brushed those thoughts aside for now.
+
+“I plan to reconstruct Blackstone Town,” said Lark.
+
+Soon, the young master explained to Silver Claw his plans. A large main road that would run until the eastern part of the Endless Forest. Expansion of the eastern border of the city. Construction of stone houses for the residents. Creating a Mine in a cavern within the Endless Forest. Creating an irrigation system connected to the Rile River. Reclaiming the barren lands in the west and the north. Creating a poultry farm in the south.
+
+After the explanation, Silver Claw felt out of breath. The plan was too ambitious, and he never heard of a noble attempting so many things at once. And judging by the way the Young Master spoke, it seemed that those things were merely the start, the stepping stones of his plans.
+
+Silver Claw carefully said, “Are those things… really possible?”
+
+In the first place, he never heard that there was a cavern located at the eastern part of the Endless Forest. Moreover, that cavern was, according to the young master, a Kalrane Mine. Silver Claw had so many doubts and questions, and his mind was screaming at him that such plan was too grand and ambitious for such a small town.
+
+“Of course,” said Lark, without a hint of hesitation.
+
+After some time, Silver Claw said, “Then, I will keep my promise. I will work for the Young Master.”
+
+Even if the plans seemed unrealistic, Silver Claw deemed that he should at least uphold his promise. Even if the plans failed, he would try his best to see it through the end. That was his resolve.
+
+“Excellent,” said Lark, grinning. He took out a small rolled parchment from his cloak and opened it. “Then, here is your first task.”
+
+
+Chapter Eleven
+
+
+Gaston looked at the hall below. The soldiers, including the new recruits, were training. After running around the hall hundreds of times, they would immediately begin the basic training. Stab, pull, repeat. These movements have been done repeatedly for the past few days.
+
+The young master constantly emphasized the importance of the basics, saying that it would determine the overall competence of an individual. With those thoughts in mind, he strictly made everyone repeat the same stabbing movements again and again.
+
+The old butler smiled at this sight. Who would have known that these many people were willing to become soldiers of the Young Master? At the corner of his heart, he was thankful of the small changes that was happening to the young Lord. Despite the numerous criticisms to Lark back in Gryphon’s City, Gaston believed that the Young Master would eventually grow up to become a splendid man. And it seemed that he was right.
+
+“Lord Drakus,” whispered the butler. “Your son isn’t as hopeless as you thought. I sincerely wish that you’ll allow the young Lord to go back to the Duchy soon.”
+
+Gaston had been working for the House of Marcus for more than fifty years now. He had taken care of Lord Drakus when he was young, and now, he was tasked to take care of his son. To the old butler, his duty was his top priority. His old life was irrelevant and secondary. That was why when the Lord decided to send the Young Master to this desolated region, the old butler insisted that he should follow.
+
+After one last look at the soldiers below, Gaston went towards the room on the third floor. He knocked thrice and a young voice answered. “Enter.”
+
+The door softly creaked as the old butler entered.
+
+“Young Master,” said Gaston. “Here’s the report regarding the new workers. A total of 197 residents applied for different kinds of jobs.”
+
+“How many soldiers passed my exam?” said Lark. He sat at the table, his hands moving busily as he wrote down things on a parchment.
+“Out of fifty-seven, forty passed the test, Young Master,” said Gaston. His monocles glimmered for a moment. “As you've ordered, I’ve given Captain Qarat the responsibility of training them. They are currently doing the basic training in the hall right now.”
+
+The test given to the soldier applicants was a series of questions with open-ended answers. The main goal was to assess their personalities, whether they were fit to become soldiers or not. Gaston was given the task of administering these little tests. If there were confusions, he would refer them to the Young Master.
+
+“Have you sent the report to Silver Claw regarding the construction projects in the eastern border?” said Lark.
+
+“Yes, Young Master,” said Gaston. “He said that he’ll need more men if we want to finish the eastern border’s construction before Fall. Also, he’s said that it’ll be impossible to commence with the cobblestone project as of the moment. There’s just not enough hands.”
+
+Lark stopped writing. He took a sip from the cup then gazed at the old man for a moment. “I see. How about the poultry farm?”
+
+“Ah, Sir Silver Claw said that he’ll be able to finish the preparations in the middle of spring,” said the butler. “He’s already ordered his men to place wooden fences in the southern border of the town.”
+
+“Good. Tell him to prioritize that one,” said Lark. “I’ve heard that the products I’ve ordered from Lion City have arrived?”
+
+“Yes, Young Master. We’ve placed the items in the storage room in the underground basement.”
+
+“Good job,” said Lark. He stood up. “Lead me there.” The butler bowed. “As you wish.”
+
+The two of them went towards the underground basement. Along the way, they passed by the soldiers training in the hall. Lark nodded approvingly at the sight, before resuming his steps towards the underground.
+
+Upon arrival at the basement, several servants and guards were seen going back and forth, carrying with them wooden crates. Wheats, iron ingots and several other products filled the underground room.
+Lark inspected the delivered goods. After praising the servants and the guards for a job well done, he asked everyone to leave the basement.
+
+Lark went towards the place where the iron ingots were stored. They have been taken out of the crates beforehand. Just these ingots alone have cost around a hundred gold coins, and including the wheat seeds and the other products, he had spent more than two hundred and fifty gold coins in total after this single transaction.
+
+“I need to secure the Kalrane Mine soon,” said Lark. He knew that at this rate, the treasury would run dry before the arrival of the next winter. After all, there were still the salaries of the workers he needed to worry about.
+
+“Now, let’s try making those things, shall we?” Lark licked his lips then placed his two hands on the iron ingots.
+
+A magic circle appeared underneath the pile of iron, sucking the mana within Lark’s body. After the runes spun around the hexagram, a faint light glowed, and the iron ingots started assuming a different shape. Rakes and other common tools were inefficient and not enough, so Lark decided to create a better tool for farming. Since he wanted to convert the barren lands in the north and the west as soon as possible, he deemed that he needed to compensate the lack of workers by using magical items.
+
+After transmuting the iron ingots, a peculiar product had been made. It was a plowing tool that resembled a bicycle. But instead of wheels at the front, it was a long tube with pointed metals embedded all over the shaft. Small magic circles have been engraved at the handles on both ends, and after adding ormatane dust, it was now possible for non-magicians to use the item by simply providing mana.
+
+Lark was well aware that all creatures in this world have mana residing in their bodies. The amount varies, and the difference between magicians and non-magicians was simply the ability to materialize the mana. With these magical engravements, even those without talent would be capable of using the items.
+
+Lark estimated that a non-magician would be able to use the tools for half an hour at most before running out of mana.
+“This is tiring,” he breathed. Beads of sweat have started forming on his forehead. His current body was simply too weak, and after creating the third plowing tool, he found out that he had run out of mana.
+
+Lark sat for a while, his chest rapidly rising and falling. If he was in his previous body, transmuting these iron ingots would have been finished in no time. Still, although it was hard, Lark was enjoying himself. He felt a sense of accomplishment each time a magic tool was created. It was a refreshing feeling, something he had forgotten a long time ago.
+
+
+
+
+***
+
+
+
+
+
+After finishing the magical tools, including those that would be used for mining, Lark gathered all the farmers that decided to work for him. He led them towards the southern part of the town, the place where the residents dumped their night soil.
+
+“Y-Young Master,” said Gaston. The old man was covering his nose. “Please stop. You’ll get sick if you stay in this place.”
+
+Around them, numerous insects hovered about. The air was putrid, as though the scent of death and decay had covered everything. One of the servants vomited on the ground after stepping inside the area.
+
+Lark did not seem to mind the smell. On the contrary, his eyes were glimmering with delight after seeing the piles of dung that covered everything the eyes could see. According to the documents he had read, the practice of dumping the residents’ excreta to this place had been going on for decades.
+
+This is a treasure trove. I’ll be able to fill the barren lands in the north and the west with these composts.
+
+The natural process of decay over the years have made it possible for Lark to immediately utilize these wastes as compost. Although it was crude and
+there was the danger of acquiring different kinds of disease from using these, Lark planned of taking care of those problems using magic.
+
+“Fill the barrels with these and load them to the carts!” ordered Lark.
+
+The farmers, a bit disgusted by the task, moved and shoveled the night soil into the wooden barrels. There were a couple of complaints why they should move these wastes into the carts. It seemed that in this world, the use of night soil was an unheard-of practice. Even the butler was questioning the sanity of this task. Lark simply shook his head after realizing this fact.
+
+Lark would discreetly cast his magic on the barrels filled with night soil, before loading them to the carts.
+
+Since there was the possibility of gas accumulating inside, Lark prohibited the workers from tightly sealing the barrels. He made sure that there was enough space for the gas to leak out. This, in turn, made the transportation of the night soil towards the farmlands unbearable. All throughout the journey, the farmers were covering their nose. The smell coming from dozens of barrels filled with excreta was simply unbearable.
+
+Lark decided that their first target would be the barren lands in the north.
+
+After arriving at the farm lands, the metallic tools created by Lark had already been neatly placed on the ground. Each of them was around three times the size of a human. There was a large tube at the front of the tools, with spikes protruding all over.
+
+The ground was still covered in snow, but Lark deemed that it would be possible to start the plowing with the help of the tools he had created.
+
+He divided the farmers into two groups. One was responsible for plowing the lands using the tools, while the other was responsible for spreading the composts.
+
+“Listen!” said Lark. He tapped the handle of a plowing tool. “This here is a special item that will make it easier for everyone to plow this land! It requires a bit of mana, but it should be fairly easy to use!”
+
+The farmers looked at each other. Murmurs filled the air.
+
+The butler, seeing this, spoke, “But Young Master, the workers are unable to use mana.”
+“That’s fine,” said Lark. He pointed at a skinny man. “You. Try it out.”
+
+The skinny man nervously gulped, looked at his fellow farmers, then went towards the Young Master. After receiving some instructions, he rode the plowing tool. He placed both feet on the pedals then began moving his feet.
+
+“It’s heavy,” said the skinny man. The metallic tool hardly moved despite his desperate attempt at pedaling.
+
+Lark nodded at that statement. “Now, place both your hands over there and do it again.”
+
+The skinny man moved as instructed. He placed both his hands on the handle then started moving his feet. He let out a surprised voice when the plowing tool suddenly moved forward without much difficulty. The shaft in front that was filled with spikes burrowed and plowed through the ground.
+
+Lark cleared his throat and everyone’s attention turned to him. “Winter will end soon. I want this area to be ready for farming once spring arrives. As you have seen, this tool will enable everyone to plow the lands at a relatively faster rate. The handles are especially made to absorb some mana from the user, enabling him to move the tool despite the weight and size. Everyone can use it, even if they are not magicians.”
+
+At those words, the farmers turned to each other and murmured. They were familiar with the ploughs used in major cities, but those things required the use of horses or oxen. In this remote town, they usually used rakes and hoes to plow the land.
+
+“But… Young Master,” said one of the farmers. “Is it true that everyone can use it? We are no magicians. There’s no mana our bodies…”
+
+Lark almost sighed upon hearing this. He felt that the knowledge of this Kingdom regarding magic was too lacking. “That’s incorrect. Everyone has mana in their bodies. Even the animals have it. But the amount varies in each person.” He pointed at the skinny man riding the plowing tool. “He’s not a magician, but he’s able to use it, right?”
+
+Although it felt frustrating trying to teach something so obvious, Lark patiently taught the farmers. If he did not educate them here, problems would arise later.
+“Since there are only eight plowing tools right now,” said Lark. “You will alternate in using the equipment. Once the user runs out of mana, another one will replace him. For those that are not using the tools, you will be tasked to spread the composts to the ground. Use the rakes to spread it out.”
+
+Lark opened one of the barrels, and the pungent smell immediately leaked out. He shoveled some night soil then spread them evenly on the ground. Using a rake, he spread it across in a single direction. He planned to plow the area twice to move the compost to deeper areas of the ground.
+
+After the demonstration, Lark approached one of the farmers.
+
+“Oliver,” he said to a man with thick moustache. “I will entrust the northern area to you.”
+
+The man called Oliver bowed his head. He was one of the farmers in Blackstone Town. Unfortunately, he had lost all of his crops from the Black Famine. “Please leave it to me, Young Master.”
+
+Lark nodded. He clapped his hands once and said to everyone, “Start working! I want this area to be ready once spring arrives!”
+
+After those words, everyone started moving.
+
+Lark looked towards the nearby forest, particularly towards the river flowing inside it. His next goal was the irrigation system that would connect to the Rile River.
+
+Chapter Twelve
+
+
+Inside his office, Lark carefully finished the map of Blackstone Town and its surrounding regions. Yesterday, he flew towards the sky numerous times and recorded the details of the town, along with a large portion of the Endless Forest that surrounded the north and the east, the Rile River that flowed through the forest, the Kastel Plains that spread through the south, and the Prey River that connects to the Lion City in the west.
+
+Since his mana pool was inadequate, Lark had to repeatedly fly to the sky and record the imagery below. It was a toxic task that took him almost an entire day to finish.
+
+“Finally,” he sighed and put his quill down. Spread on the table was a large map of Blackstone Town.
+
+The map was an absolutely necessary existence if he wanted to expand the borders of the town. Upon looking at it, he realized that there was no need to extend the irrigation system from the Rile River until the west. He could just create a second one that connects to the Prey River.
+
+From the door, two knocks were heard.
+
+“Enter,” said Lark.
+
+The door opened and the butler entered the room.
+
+“Young Master, the thing you’ve requested from the Mason has been finished,” said the butler.
+
+Lark raised his brows in surprise. “That’s fast.” He nodded approvingly at the news. “Excellent. Gaston, tell the servants to load the barrels filled with stones to the carts. We shall head immediately to the northern border.”
+
+“Understood.” The butler bowed and the left the room.
+
+On his way towards the garden, he passed through the hall where the soldiers were training. Just like before, they were repeating the same basic movements over and over again. A few days ago, there had been numerous grunts and complaints regarding this, but it seemed that as days went by, the soldiers eventually became used to this routine. Their stiff postures have
+relaxed somewhat, and although their movements were still crude, they were starting to resemble the trainee soldiers in the Magic Empire.
+
+After buying large quantities of iron ingots and ormatane dust from the Lion City, Lark had been secretly making magic spears for the soldiers. Along the shaft of each spear, Lark would engrave magic diagrams and formations, enabling even non-magic users to use elemental magic with each strike of the spear.
+
+Lark planned on distributing those items once the soldiers have gained a degree of proficiency with the spear. After all, a weapon that would transform a non-magician to a Magic Soldier would be useless in the hands of those that were unskilled.
+
+Upon seeing the young master, Captain Qarat shouted, “All soldiers — Salute!”
+
+Immediately, the soldiers practicing their piercing skills stood in attention, their spears neatly placed on their right. They clenched their left fist then struck their chest, creating a loud and uniform thud sound.
+
+Lark smiled upon seeing this. This was the same salute used in the Magic Empire. Back in his previous life, tens of thousands of Magic Soldiers would strike their chests when greeting their Commanders, and the impact of that single salute would shake the ground itself. Now that he thought of it, it was indeed an overwhelming and invigorating feeling.
+
+Once the number of soldiers increased, I’ll eventually hear that sound again.
+
+Lark looked forward to that day.
+
+“Continue your training.”
+
+“Understood!”
+
+It’ll probably take a year or two before these guys become worthy of wielding the magic spears. If I gave them those items now, their growth will be hindered in an instant. There’s nothing more dangerous than becoming complacent because of magic items. I’ve seen a lot of soldiers die because they’ve put too much trust in those things. At the end of the day, one’s own skills will be the one that’ll save you in the battlefield.
+
+
+
+
+***
+
+
+Upon arrival at the northern border, Lark saw the thing he asked the Mason to make. It was a structure made of bricks and clay. Its body was like a box, with a long tube at the end that reminded one of a chimney’s. Following Lark’s design, half of its body was buried in the ground. Beside it, two similar structures were being constructed by the Mason and his men.
+
+“Ah, it’s the Young Master,” said Silver Claw. He wiped the dirt on his hands then made a bow. “We’ve finished the thing you’ve asked. We’re currently working on the second one.”
+
+Lark inspected the finished product. He knocked on it and nodded. “Good work. With this, it’ll be possible to speed up the construction of Blackstone Town.”
+
+Silver Claw had discussed this structure with the Young Master before. According to the young master, this thing they’ve made was called a kiln. A necessary tool in creating cement.
+
+Based on the story of the Young Master, a cement was a substance capable of putting stones together in a short amount of time. Furthermore, it was something really easy to prepare as long as one had the necessary materials. Silver Claw did not fully understand the steps and the details, but the Young Master promised to demonstrate it to him.
+
+Honestly, the Mason have doubts about this. After all, if such a convenient method was available, why didn’t the Kingdom and the Empire use it? He had been a Mason for decades, and he knew how arduous and time consuming it was to build things made of stone. He had never heard of such a convenient shortcut before.
+
+“Listen, I want you to prioritize the production of cement from now on. The rate of development of the town is simply too slow,” said the Young Master. “We need the cement to speed up the construction process. Understood?”
+
+“Yes, Young Master.”
+Actually, Silver Claw felt that the development of this town was fast enough already. Even in the Lion City, he had never seen so many projects going on at once. Reclamation of barren lands. Construction of poultry farm. Expansion of the border of the town. Building of residences. Main road construction project. And lastly, the irrigation plan for the northern land. All of those were ambitious projects.
+
+Still, it seemed that the Young Master felt that the speed of development was still slow. Silver Claw smiled wryly at the thought.
+
+The Young Master ordered the servants to unload the barrels from the carts.
+
+Upon opening, Silver Claw saw numerous stones inside it.
+
+“Listen. We will create cement from these limestones. Luckily, there’s a lot of them of them in area.”
+
+Lark had this theory that this land was once submerged underneath the sea, probably thousands of years ago, which explains the presence of these limestones near the Endless Forest. It was truly a stroke of luck, since he would not have to order them from the other cities.
+
+Lark took a pickaxe and struck the stones, creating numerous smaller pieces. “Break the large rocks into smaller pieces. Pulverizing them would take a lot of time at first, but it the long run, it saves us the effort of putting the large pieces back into the kiln if the heat failed to break it.” He looked at everyone, making sure that they were listening intently to his instructions. “After this, put them inside this thing here.” He pointed at the kiln.
+
+Lark further explained that using firewood or coal, they would heat the kiln. Due to the structure of the kiln, heat would accumulate over time, giving rise to higher temperatures. Once it reached a certain degree of heat, it would decompose the rock, creating quicklime and at the same time liberating a certain gas.
+
+“The finished product is called cement. We’ll use it to make concrete,” said Lark. The Mason and his men were obviously confused, but he continued speaking regardless. He knew that over time, they would eventually understand everything. “Once the lime has been cooled, mix it with this
+ratio — one part lime, two parts sand, three parts gravel. After that, slowly add water.”
+
+Lark was not really sure about the ratio, but he deemed that it should be a good starting point for now. At the very least, once they have managed to create quicklime, the rest of the steps would be easy. They would just have to perform a trial and error on the proper amount of cement, sand, gravel, and water.
+
+“Everyone should avoid inhaling the dusts produced by the kiln,” said Lark. He also warned about the dangers of coming into contact with the quicklime. He vividly described what would happen should they ever touch those things without first cooling it.
+
+After his warnings and demonstrations, Silver Claw and his men started working on the task.
+
+Lark had finally made the first step on introducing cement to this town.
+
+Chapter Thirteen
+
+
+[City of Behemoth – Capital of the Kingdom]
+
+“Your Majesty, please reconsider this!” said Marquis Carlos. “If you announce that to the entire Kingdom, we’ll enter a civil war!”
+King Alvis glared at the Marquis. “Carlos, are you telling me that I should not choose a successor?”
+
+Despite the heavy gaze of His Majesty, Marquis Carlos did not yield. He knew that if he did not stop the King here, their country would enter a dark age. Even if he was hanged for overstepping his bounds, he had no intention of backing down.
+
+“That’s not what I meant, Your Majesty! Think about it! The three Dukes are the reason why the Empire has not invaded this Kingdom yet! If you announce that now, those three will end up killing each other!” roared the Marquis. He saw that the personal guards of the King started moving after that, but he continued regardless. “Please reconsider, Your Majesty!”
+
+Silence befell the throne room. King Alvis gazed upon the Marquis beneath the throne, carefully embedding into his mind the pallid face of the old man that had accompanied him through numerous battlefields.
+
+Marquis Carlos was his most trustworthy general and his closest friend. He knew that the old man wished nothing but the best for him and the Kingdom. Still, King Alvis had already resolved himself for this one.
+
+“I will not change my mind,” said the King eventually. He waved a hand and two guards approached Marquis Carlos and grabbed his shoulders.
+
+“What the meaning of this?!” growled the retired general. Under the fierce glare of Marquis Carlos, the two guards nervously gulped down.
+
+“My dear friend, I am sorry.” King Alvis was frowning. He closed his eyes for a moment, creating numerous wrinkles on his skin. “Until the declaration ends, I will have to lock you down in the dungeon. Of course, rest assured that you will not be harmed.”
+The guards took out chains and cuffed the retired general. Marquis Carlos did not resist, probably because using force inside the throne room would be far too disrespectful to the King. He merely stood there, biting his lips as the cuffs were wrapped around his wrists.
+
+Marquis Carlos and the King locked eyes with each other.
+
+“King Alvis, please.” Marquis Carlos’ voice was almost sobbing. For a moment, King Alvis had the urge to immediately unshackle him. “There must be a better way. Please… Please… reconsider.”
+
+King Alvis knew the implications of his decision. Indeed, just like the Marquis said, their country might enter a civil war once his announcement spread through the Kingdom.
+
+But I’m running out of time.
+
+After a heavy sigh, King Alvis gave the signal to the guards. They took away the bound Marquis. Silence once again returned to the throne room.
+
+
+***
+
+
+Two days after the Marquis had been imprisoned, the citizens of Behemoth City gathered in the Central Plaza. The place was crowded despite the cold winter, with more than thirty thousand people gathered to personally hear the announcement from the King. It was almost a fourth of the entire population of the Capital.
+
+Although King Alvis was dubbed as incompetent, he was loved by his citizens. Unlike the tyrant King that preceded him, King Alvis never tormented his people with absurdly high taxes. Also, during his reign, wars have lessened gradually, and this was due to the fact that the current King was a pacifist. The wars that occurred during his reign were on a far smaller scale, with the exemption of the Bloody Thorn Plains incident fifteen years ago.
+
+The Grand Chamberlain, Viscount Lakian, tapped his wooden pole thrice towards the ground, creating loud thud sounds. Everyone’s eyes immediately turned to him. “The embodiment of God Neruz. The heart of
+the Sun. His Majesty, King Alvis Lukas VI has arrived. Everyone – show your respect.”
+
+Immediately, the entire plaza became quiet. The residents knelt on one knee, their heads lowered on the ground. The sound of several footsteps was heard.
+
+Accompanied by the Royal Guards, King Alvis went towards the pedestal, overlooking the entirety of the crowd that had gathered in this place.
+
+“Raise your heads,” said King Alvis.
+
+“Raise your heads!” shouted Viscount Lakian.
+
+Like a wave, the crowd looked up and gazed at the old man standing on the pedestal. Unlike most Kings, his finery was not gaudy. His long silk tunic was embroidered with very few golden threads, and his cloak had a plain purple color. If not for the scepter in his hand, it would have been easy to mistake him for a low ranking noble of the Kingdom.
+
+“Today, I have gathered everyone to make an important announcement.” King Alvis’ voice echoed with the help of an expensive magic stone.
+
+King Alvis could see that aside from the commoners, several nobles stood among the crowd. Most of them were familiar faces.
+
+He once again remembered his dear friend, Marquis Carlos. Right now, the retired general was locked up in the dungeon, and once this speech was over, he planned on releasing him. He knew that if he had not locked Marquis Carlos away, he would have created a revolt just to stop this announcement. Once that happened, even his status as the King of this country would not exempt his friend from the death penalty. It was something King Alvis would like to avoid at all costs.
+
+King Alvis could feel the gazes of everyone. He breathed in then said, “Four years from now, I will pass the throne to my successor.”
+
+The entire plaza blazed into life. Numerous murmurs filled the air. It was a well-known fact that the King’s children were all female. He did not have even a single son to inherit the title. Since it was in the law that only males were allowed to become the ruler of the Kingdom, everyone thought that
+the King would try to have a son within the next few years. After all, although old, males were still capable of impregnating a woman.
+
+Therefore, a question ran through the minds of the citizens and the nobles. Who would be the successor the King spoke of? As far as they knew, the King was without a son.
+
+As though answering the thoughts within their minds, the King spoke, “As you are all aware, all of my children are female. Because of this, I will be choosing my successor from among the Three Great Families. All of the sons of the three Dukes will become candidates for the throne.”
+
+King Alvis could see that the nobles were stunned upon hearing this. The common citizens, on the other hand, were ecstatic. They had never heard of something like this before – a King handing over the throne to someone without blood of the Royal Family.
+
+“I will choose the heir to the throne based on that person’s capability. By that, his ability to rule his territory,” said King Alvis. “Since problems will surely arise because of this, I forbid the three Dukes from waging war against each other. If proven guilty of trying to bypass this decree, the House of the perpetrator will be immediately kicked out of competition for the throne.”
+
+King Alvis knew that even with this decree, the three dukes will still clash against each other regardless. But at the very least, he would be able to prevent an all-out war of the three large forces.
+
+I’m running out of time. This Kingdom needs a new ruler soon. A great monarch that would lead the people to peace and prosperity.
+
+
+
+
+***
+
+
+The news of the King’s declaration immediately reached the entire Kingdom and its surrounding countries. In the taverns, discussions on who among the three Duke’s sons would most likely inherit the throne was frequently heard.
+Inside his room, Lord Drakus silently sipped wine from the bronze goblet. He looked through the window, gazing at his domain. As one of the three Dukes of the Kingdom and also the Head of the Marcus Family, he possessed power second only to the King. With a single command, thousands of soldiers would march under his flag.
+
+“Haaa.” Lord Drakus deeply breathed. These past few days, he had lost sleep. The sudden announcement of the King was something he had never expected. “Four years… In four years, the Marcus Family will become Royalty.”
+
+He never once doubted this. After all, his son, Lui Marcus, was the Kingdom’s hero. At a young age of twenty-eight, he had made great feats and won numerous wars. Some of the scholars were even saying that he was the second coming of the War God, Rurukashu. With an unbeaten record, Lui Marcus was the current Supreme Commander of the Western Regiment. The Great General that kept the Empire at bay.
+
+Compared to the sons of Duke Kelvin and Duke Youchester, my son is ahead by leaps and bounds. There’s no way the House of Marcus will lose in the competition for the throne as long as Lui is with us.
+
+Lord Drakus had long accepted that Lui had already surpassed him. If not for this sudden declaration, he was even planning to pass on the title of the House Head to Lui next year.
+
+For now, I will have to postpone giving him the title. It’ll be easier to act if I remain the Head of the Family. Even if I have to empty the treasury, I have to support Lui and make him inherit the throne.
+
+As Lord Drakus was submerged in his thoughts, three knocks were heard and a voice spoke, “Father, It’s me.”
+
+Lord Drakus broke out of his fantasies. He fixed his collar. “Enter.”
+
+The door opened and a good-looking man entered the room. His silver hair was the characteristic trait of the Marcus Family. Whenever he commanded the soldiers to battle, his long hair would flow with the wind, and it gave him the nickname – the Silver War God.
+
+After shutting the door, Lui bowed his head. “You’ve called for me, Father?”
+Lord Drakus inwardly nodded at this. He approvingly looked at his bowing son.
+
+As expected. My son is perfect. The competition for the throne will surely become our win.
+
+“I’m sure you’ve heard of the announcement from the Capital.”
+
+“The competition decreed by His Majesty?” said Lui. Although he was still wearing the sword on his waist, Lord Drakus did not mind. He knew of Lui’s personality. Even in banquets, his son never took off his weapon. He would always say that a moment’s carelessness could lead to death. “People have been talking about it nonstop that my ears have gone numb.”
+
+Seeing the wry smirk of his son, the confidence within Lord Drakus’ heart rose up a notch. As expected, the competition was no big deal for his genius son. There was hardly a change in the expression of Lui all throughout their conversation.
+
+Lord Drakus grabbed the shoulders of Lui and looked at him straight in the eyes. “Listen, Lui. As my only son, I will support you with anything, using any means necessary. I will use all the power of the Marcus Family to make you ascend the throne.”
+
+Lui’s eyes glimmered. “I understand, Father. I’ve already asked Count Nases to gather all of the nobles within our faction. They’ll arrive here soon within the next few days. I’ve also mobilized half of the Marcus Army stationed in the Rulfort Mountain Range. They’re currently moving towards the Louan Plains to subjugate the monsters residing there.”
+
+“Louan Plains?” Lord Drakus frowned. “Monsters?”
+
+“Yes, Father. The King said that he’ll judge us based on our ability to govern our people. Therefore, instead of prioritizing guarding the border of Rulfort Mountain, we will do better in using the army to subjugate the monsters in Louan. The City of Metesda and the City of Yan are currently separated by the Silen River—but that’s wrong. What really separates the two cities are the monsters that follows the river’s route. I’ve sent several men to do reconnaissance in that area and they found out that the monsters originated from Louan. If we are able to subjugate the monsters in Louan Plains, a trade route between Metesda City and Yan City will open up.”
+Lord Drakus was at loss for words. Metesda and Yan were both under the domain of the Marcus Family. If this information was true and the army managed to subjugate the monsters in Louan, then the two cities would prosper once the trading route opened up. Furthermore, the area surrounding Silen River was filled with gemstone mines. But due to the monsters that frequently roamed the area, those mines were never developed. The Kingdom tried subjugating the monsters before, but for some reason, they kept coming out of the River, as though they were birthed by the water.
+
+As expected of the Silver God that defeated even the Empire. In just a few days, he had already come up with a plan to win the competition for the throne. In just a few days, he had already come up with a plan to make their domain prosper.
+
+Lord Drakus tried to stop his body from shivering in delight. He could not ask for a more perfect son.
+
+“But Father, there’s one thing that’s wrong,” said Lui.
+
+Lord Drakus paused before asking. “What do you mean, Lui?” “I am not your only son,” said Lui.
+
+For a moment, the head of Lord Drakus throbbed. He remembered that boy borne from his concubine. The incompetent boy that, unluckily, have the blood of the Marcus Family flowing through his veins. Personally, Lord Drakus felt that he had been a kind father for simply exiling that boy towards that desolated town.
+
+“You mean, that one?” The eyes of Lord Drakus narrowed. He let out a sigh.
+
+“Father, Lark is also your son.” The face of Lui was grim. “He’s closer to a demon than a human, I’ve got to admit, but he’s still my brother.”
+
+Lord Drakus did not like where the conversation was heading to. He knew perfectly well this side of Lui. Although he was a peerless commander, he had a fatal weakness – he loved his family too much, to the point of kneeling in front of everyone just so that his useless little brother would be forgiven for his atrocious misdeeds.
+If possible, Lord Drakus would like to disown that stupid son of his that carried the name of the Marcus Family. If Lui had not stopped him back then, he would have exiled Lark outside the Kingdom, never to be seen again.
+
+Now that I think of it, the brat should still be alive, right? Gaston insisted on coming with him. And I gave him a hefty sum too. But considering that brat’s personality, it wouldn’t be surprising if he’d squandered it by now. Ah.. Damn it. Just thinking about that one is giving me a headache.
+
+“Father, I suggest that you send several soldiers towards that place,” said Lui.
+
+“To that small town?” Lord Drakas could not see the merit in doing that.
+
+“Yes. With my rank as the Supreme Commander of the Western Region, it’ll be hard to target me. Therefore, the other two Dukes will definitely aim for my little brother.”
+
+Upon hearing this, Lord Drakus’ expression turned grim. He sent that stupid kid to a faraway place so that he’ll not be able to harm the reputation of the Marcus Family, but it seemed that alone was not enough to remove the problem.
+
+I really should have killed that brat back then. He kept ruining the Family’s reputation. Fighting with the other nobles. Harming the citizens of the fief. A year ago, he even almost killed the priest due to some petty squabble about religion.
+
+Despite his dark thoughts, Lord Drakus never implemented such plans. His genius son would find out sooner or later, and it would definitely deteriorate their relationship with each other. It was something he would like to avoid at all cost.
+
+Lord Drakus sighed. “Tell me, what merit would the two Dukes get by targeting Lark?”
+
+Even if that son of his was harmed by the Dukes, it did not really matter to Lord Drakus. After all, that kid was nothing but a baggage. He could not see how it would affect him in anyway.
+Lui gnashed his teeth as he stared at Lord Drakus. “By targeting my brother, they’ll be indirectly targeting me.”
+
+“Father, if they harmed my little brother, I will slaughter the two Dukes and their entire Army, regardless of the Royal Decree.”
+
+The eyes of Lui was predatory. “I promise you that.”
+
+Chapter Fourteen
+
+“Father, do you really have to go to that place?”
+
+Mikael lifted the bag filled with clothes and tied it on his back. “You’ve been asking me the same question since morning.” He wryly smiled at his daughter. “Elaine, it’s an order from the King. I have no choice but to go to that town.”
+
+“But what’s the point of monitoring that garbage?” Elaine rolled her eyes and sighed. “I’ve heard from uncle Gerald that even Lord Drakus himself does not wish to be associated with that one.”
+
+After the declaration of the competition for the throne, Mikael, along with twenty-seven other knights, have been gathered in the throne room. The King personally assigned duties to each of them. The task was this: Disguise yourselves as ordinary citizens and evaluate the twenty-eight candidates for the throne. Of course, to do that, they would need to go towards the domain of the candidates themselves and monitor them closely.
+
+“Elaine, even if it seems pointless, this is a task personally entrusted to me by His Majesty. I cannot fail my liege. I have to complete this task, no matter what.”
+
+He also knew that the candidate he was going to monitor had the least chance of winning the competition.
+
+Mikael grabbed the skin flask on the table. Although he was a knight by profession, he no longer wore a plate armor. His beloved sword was now hanging on the wall of his room. Instead of an armor, what he was currently wearing was a dirty-looking tunic. The hem was filled with moth bites, and the leather belt around his waist was filled with cracks. Combined with the cheap-looking bag on his back, it would take no more than a glance to see that he was a serf of the Kingdom.
+
+Seeing his father dressed like a rag, Elaine could not help but feel frustrated. After all, although they did not own a land, they were still a family of knights. A noble by title and peerage.
+
+“This is stupid.” Elaine shook her head.
+At that statement, her father glared. “The decision of his Majesty is not wrong. Even though Lord Lark Marcus has been thrown away into that small town by his very own father, he’s still a candidate for the throne. After all, he’s still one of the sons of Duke Drakus.”
+
+“But father, His Majesty should have given you a better candidate to monitor, at the very least! You’ve heard the rumors about that one, right? If he treats priests and nobles like dirt, then how much more for the commoners?” Elaine was worried that since her father was disguising himself as a serf, he would be in danger once he arrived at that small town. After all, numerous bad rumors surrounded the noble called Lark Marcus.
+
+Mikael placed a hand on his daughter’s head, ruffling her hair in mischievous strokes. “Your father’s a knight, Elaine. Even if I meet a band of thieves along the way, I’ll survive. A mere noble kid won’t be able to kill this war veteran.”
+
+Elaine knew that this statement was not simply baseless confidence. After all, the title of a knight was something bestowed only to those that have trained themselves in mana. Magicians were regarded as Sages, while the people of the Kingdom regarded Knights as God’s Soldiers. After all, they were adept at both magic and swordsmanship.
+
+Still, even though she knew that her father was strong, she could not help but worry.
+
+“When are you coming back?” she asked, voice soft and soothing.
+
+There was a small pause. “I don’t know. I didn’t get to ask his majesty about that. He only told us to secretly monitor the candidates and send reports every now and then.”
+
+“You’ll send the reports personally, right?” Although Elaine knew the answer to this question, she still asked regardless.
+
+“That’s impossible. Blackstone Town is almost two months away from the Capital.”
+
+As expected, her father was going to use a messenger to send regular reports to His Majesty. Realizing that it would probably be years before they see each other again, tears started forming at the corner of Elaine’s
+eyes. Ever since her mother died, Mikael had been her only pillar of strength. And now, he was leaving her behind to complete this task.
+
+“My child will be born soon.” Elaine touched her abdomen. “Can’t you stay for a month more? Father, at the very least, see your first grandchild before you go.”
+
+Although Mikael was torn inside by this fact, he did not let it show on his face. He had already resolved himself to complete this task for His Majesty. He simply smiled and did not reply.
+
+After a few more seconds of deafening silence, Elaine sighed, walked towards her father and hugged him tight. “I will miss you, father. Please, be safe.”
+
+Mikael thought that he had raised a good daughter. If his deceased wife sees her now, she would have been very proud. “Of course.”
+
+
+***
+
+After leaving the inner district of the Capital, Mikael went towards One Stop Clop – the only company that accepted his request to travel all the way to Blackstone Town. Although the price was a bit overpriced, Mikael did not mind. After all, the expenses were paid beforehand by the Royal Palace.
+
+The only downside, aside from the expensive price, was that the company would drop by all the cities along the way, before transporting him to Blackstone Town. This was because merchants were coming with the caravan, and those guys would need to stop and trade with the cities along the way.
+
+“Ah, Mikael, is it?” said a fat merchant. He was the leader of the caravan and also the owner of One Stop Clop. “Ready to meet your old man in Blackstone Town?”
+
+According to the script, Mikael was a serf traveling to Blackstone Town to meet his dying father. This was the reason why although a commoner, he willingly paid a hefty sum to the transport merchant. Since this was a task personally entrusted to him by the King, aside from his daughter, he told no one about it.
+Mikael looked at the six carriages lined up in front of them. Workers were loading crates inside, while merchants wearing gaudy clothes facilitated the transfer.
+
+“I’m really glad that you’ve let me join this caravan, sir.” Mikael bowed his head. If his daughter had seen this, she would have reprimanded him for bowing his head to a mere merchant. Mikael could not help but inwardly smile at the thought.
+
+“You have money. That’s enough reason to let you in.”
+
+The logic behind merchants were really simple, and this was why Mikael found it easy to blend with their group. To the merchants, money was above the law. Even if Mikael was a fugitive, the transport merchant would still have let him in as long as he paid.
+
+“Those are…” Mikael’s eyes looked at the naked men and women boarding the fourth carriage.
+
+The transport merchant looked at the direction where Mikael was looking at. “Ah, slaves. Caught by the Furtpert Syndicate. Nasty creatures, those guys, but really effective. Make them work for you and they won’t even complain.”
+
+Mikael understood why the merchant called those slaves nasty. Even from this distance, he could clearly see the animal-like features of the captives. Unlike normal ears, theirs were those of a cat’s or a dog’s, some even resembled lizards and monkeys – Mikael was not sure. But he was certain that those slaves were beastmen.
+
+Mikael narrowed his eyes. “Forgive my impudence, sir… but would there be people who’ll buy them? I mean, they’re beastmen. They’re treated even lower than animals in this Kingdom.”
+
+The transport merchant chuckled. “Keep going west of here and you’ll arrive at the Lion City. You wouldn’t believe this, but the Lord of that city loves to collect Beastmen as pets. I’ve heard that he would sometimes kill them for the meat, not really sure ‘bout that one, but who cares? It’s good profit.”
+
+Mikael immediately connected the dots. He realized the reason why the One Stop Clop agreed on transporting him all the way to Blackstone Town.
+So, this group’s actually going to Lion City in the first place. They’re selling those Beastmen there, huh? I’m a bit worried about the Lord of that city. Eating Beastmen meat? I should make a report to His Majesty about this.
+
+Since the Beastmen were not considered humans to begin due to their semblance to the Demons, there was no law prohibiting anyone from enslaving them. Even if these merchants massacred these Beastmen, they would not be punished.
+
+But Mikael deemed that he should report about the consumption of Beastmen meat. It somehow made him question the Lord of the Lion City’s sanity. As a knight of the Kingdom, it was his duty to report these kinds of things.
+
+The cage containing the captives were shut.
+
+After the signal from the leader of the merchants was given out, the caravan starting moving out.
+
+Their final destination was Blackstone Town.
+
+Chapter Fifteen
+
+
+After the introduction of cement, Silver Claw and his men immediately proceeded to the construction of the irrigation system as instructed by the young master. They began digging a pathway for the water on the ground, and once this pathway was finished, they would connect it towards Rile River that flowed inside the forest.
+
+“Dig a little bit more!” shouted Silver Claw. Over a dozen workers were shoveling through the ground, sending dirt and soil flying towards the sides. “It should be at least as deep as a person’s height!”
+
+Silver Claw did not use complex terms like one and a half meters deep and two meters wide. Instead, he used simple terms the illiterate workers could understand.
+
+“That should be deep enough!” he shouted after seeing the depth of the trenches. “Add the cement!”
+
+Upon his order, the cement mixture inside the wooden barrels were poured on the ground. They slowly added water to it and mixed it briskly using a wooden rod with a flat end. The workers quickly moved and spread the cement on the walls and foot of the canal. This way, according to the Young Master, the irrigation canal would not easily collapse once large amounts of water came pouring out of the Rile River.
+
+This thing invented by the Young Master… this cement… it’s really amazing.
+
+Silver Claw’s heart raced whenever he thought of the many things that would be now possible with this world-shaking innovation. When he first saw how the earth hardened after addition of water, he was speechless beyond words. It took only a few hours and yet, the product was hard enough to compete with stone. And as though that wasn’t enough, this so-called cement adhered so strongly to other stones that it was impossible to separate them without using brute force.
+
+Silver Claw was getting shivers just thinking of these things. He wanted to get back to the eastern border as soon as possible and test this cement out on the houses being constructed there. Still, since this was ordered by the
+young master, he was to prioritize the completion of the irrigation system first.
+
+As they neared the farmlands, the canal was designed to break into numerous forks. In each fork, a device meant to block the flow of water was to be constructed. According to the Young Master, aside from the main plug at the junction of Rile Rilver, other stopper system should be built to properly distribute the water. He repeatedly emphasized that these devices needed to be made no matter what, in order to avoid overflowing of water into the farmlands. If one stopper broke, then those on the fork would still hold.
+
+Although the Lord of Blackstone Town was still young, Silver Claw could not help but be amazed by his insight. He had seen the plowing tools before, and even just those things alone would be enough to warrant merit from the entire Kingdom. And now, the Young Master introduced this earth-shaking innovation called cement and this ingenious stopper system in the irrigation project.
+
+Silver Claw breathed out. He knew that this was not the time to dally.
+
+I can’t let my men do all the work, right? Let’s finish this quickly so that I could finally test the cement on those houses.
+
+Silver Claw rolled the sleeves of his shirt and joined the workers inside the trenches. He also began digging through the ground.
+
+
+***
+
+
+Lark received news that the first chicken coop had been finished. He immediately summoned Gaston and issued his orders.
+
+“Tell the servants to load the chicken eggs to the carts,” he said to the old man. “Two hundred eggs. We have two roosters in the coop at the garden, right?”
+
+“Yes, Young Master.” The old butler was becoming used to the eccentric orders of Lark by now.
+“Take those two with us. Also, I’ve ordered Loi saplings from the Lion City before.” Lark bought those things at a relatively cheap price, since it seemed that the people in this Kingdom have no use for those plants. “Bring all of those with us. If the carts aren’t enough, just deliver them in batches.”
+
+“Understood.” Gaston bowed and left.
+
+After the butler was gone, Lark leaned on his chair and smiled. Developing this town was tiring yet exciting. Aside from the management of the town, he never ceased his training. His only time to rest was during the night – those five hours of sleep during bedtime.
+
+He stood up, opened the box near the bed, and took out four thin metal plates. Engraved inside the tablets were magic diagrams and formations meant to accelerate the productivity of the poultry farm. With these items, Lark planned on forcing hundreds of eggs to hatch. An item meant to solve the fertilization process.
+
+Lark went towards the garden. By the time he arrived, the preparations have been already finished. The crates containing the eggs have been loaded, along with the Loi saplings.
+
+“Young Master,” said Gaston. “The saplings will be delivered in batches, as you’ve ordered, since the carts are unable to accommodate all of them.”
+
+There were only three carts in total. Lark remembered that the other carts were being used in the northern construction right now, specifically for the transportation of limestones.
+
+Lark nodded and boarded the carriage. After a neighing sound, the carts moved slowly and exited the Mansion’s grounds.
+
+Looking outside the window, Lark noticed that the snow was starting to melt. Winter was finally coming to an end.
+
+Good. We can finally start planting the wheat seeds. I need to hasten the reclamation of the northern lands after this. It’ll probably take a year before we can start reclaiming the western region.
+
+The plowing of the lands in the north was progressing quickly due to the tools introduced by Lark. According to the reports, the average farmer was able to use the plowing tool for around twenty minutes. Each day, several
+acres of land were being plowed and fertilized by composts. If things continued progressing this way, they would be able to start planting the seeds within the next few days. The only limiting aspect would be the irrigation system, but the conventional watering method by the farmers should be enough to cover the small available area for now – at least until the irrigation canals were ready.
+
+As Lark was lost in his thoughts, they finally arrived at the southern border of the town. When Lark got down the cart, he immediately saw the newly constructed chicken coop. It was five times as large as a normal cabin, with enough room to house around a hundred chickens.
+
+A large empty space cleared of any grass surrounded the coop, with a waist-length fence serving as demarcating point. Lark was impressed that the workers followed his design thoroughly. Lark planned on using the large empty space as potential feeding ground for the poultry.
+
+“Ah, Young Master.” A tall man wearing a straw hat came running towards Lark and his group. “I’m sorry for not immediately coming to greet you. I’ve though that—,” he removed his hat and scratched his chin. “—You’ll be coming around late afternoon.”
+
+Lark smiled and simply dismissed it. He looked at the large chicken coop made of wood. He could see numerous small windows near the roof, a design meant to lessen the heat during summer. “I didn’t expect that you’ll be able to finish them so soon.”
+
+“We’ve worked day and night to quickly finish it.” The voice of the tall man held unmasked pride within. “We’re still working on the second one. According to Sir Silver Claw, the Young Master wants fifteen of them?”
+
+Lark knew that the worker was probably confused on why there was a need for so many coops. After all, by simply looking at their size, it was apparent that there would be thousands of chickens in this farm. It was an amount excessive for this small town.
+
+“That’s correct.” Lark did not elaborate. He planned on exporting chicken meat to nearby cities and villages once the time came. Also, by smoking it and drying it, those meat would easily become rations for the soldiers.
+He told the servants to unload the crates containing the eggs and put them inside the coop.
+
+As the servants unloaded the cargo, Lark turned towards the tall man. “Pico, how long will it take to finish the poultry farm?”
+
+The tall man, probably surprised that the Young Master knew his name, opened and close his mouth. “Ah… Yes. It will take around three to four more months, Young Master.”
+
+Lark tapped Pico’s shoulder. “I’m going to issue another recruitment order soon. I’ll immediately send more men to work on this farm. Make it two months.”
+
+The voice of the Young Master was firm, clearly not taking no for an answer. Sensing this, Pico bobbed his head vigorously. “Yes!”
+Lark smiled. The servants have finished their tasks.
+
+“Then, Mister Pico. From now on, you will be in-charge of the entire Poultry Farm,” said Lark.
+
+Pico realized that the Young Master was not pertaining to simply the construction of the farm but to the management of the farm itself. “But, young sir. I’m no poultry breeder. I know nothing about this job. I’m merely a constructi—”
+
+“—That’s fine,” interjected Lark. He motioned for Pico and the butler to follow him inside the coop. On his hands were four thin iron plates. “I will teach you everything you need to know about this.”
+
+After doing his research, Lark found out that the method of taking care of the poultry in this Kingdom was primitive. It was so unproductive that Lark was stunned speechless when he first heard of it. Therefore, he decided that he would introduce the Magic Empire’s way of poultry farming. Although he was a magician in his previous life, basic knowledge such as this one was mandatorily taught in the academies, and he’d heard of it so many times that his ears have gone numb.
+
+The Magic Empire’s education system is indeed great. Both magicians and non-magicians are taught all of the necessary basic knowledge. Mathematics. Science. Religion. Trade. Even Farming.
+Lark hoped that one day, such education system would exist in this world. An education system that did not discriminate between magicians and non-magicians. An education system available for people of all status.
+
+Lark looked around inside the coop. Everything was made of wood. Near the ceiling, numerous fan-shaped wooden blades were installed. Lark planned on connecting it to a magic device later, enabling it to rotate and drive away the heat during summer. After all, the summer in this Kingdom was said to be accompanied by ridiculously fierce heat waves which kill people by the dozens – and this was also true for the animals. This was one of the reasons why during summer, the prices of poultry products were ridiculously high.
+
+It’ll be several months more before summer arrived. Lark deemed that would be enough time to implement his plans.
+
+“Ah, right. The rooster,” mumbled Lark. After receiving an order, the butler soon returned inside the coop with a rooster in his hand. The rooster kept struggling out of the old man’s hands.
+
+Lark placed two metal plates on the ground. Each of them had peculiar symbols engraved inside.
+
+“These plates are called Hatchelets. They’re magic devices capable of fertilizing an egg and accelerating their growth,” said Lark. Basically, it solves the problem of fertilization by simply using the “essence” of the hens that had been passed to the eggs.
+
+He could clearly see the confusion on Pico’s face. “Put the rooster over there.”
+
+Following the direction of the young master, Gaston placed the rooster on one of the metal plates. The moment the rooster’s feet touched the plate, the symbols engraved on it glowed for a second, and the struggling rooster froze in place.
+
+Lark pointed at the second plate. “Now, put eggs on that one. Pico, you do it. One egg on each circle.”
+
+Pico saw the strange glow from the first plate. He was now convinced that these plates were magic devices. Still, he held doubts if these things were
+really capable of making an egg hatch. After all, this was the first time he ever heard of such a thing.
+
+A total of four eggs were placed on the second plate.
+
+“These two plates are connected by a thin strand of magic beforehand. Using these devices as catalyst, we will absorb a small essence from the rooster and transfer it to the unfertilized eggs. And using the same essence, we will forcefully accelerate growth inside the egg, making it hatch.”
+
+Everyone in the room was silent. They all stared at the plates. The rooster that struggled before in the hands of Gaston was now unmoving, as though it turned into a living statue.
+
+“To activate this device, a little bit of mana is required,” said Lark. “But don’t worry. Even non-magicians are able to use this thing.” He patted Pico’s back. “Place a hand on the hexagram at the center of that plate. Do it.”
+
+As instructed, Pico placed his hand on the symbol at the center of the second plate. It took several seconds before Pico felt something being sucked out of his body. It was a tiny amount, but it was continuously being sucked out.
+
+Feeling uncomfortable, Pico was about to pull out his hand when Lark said, “Don’t remove your hands. Wait for the eggs to hatch.”
+
+Under the gaze of the Young Master and the servants, Pico did not remove his hands. Even now, he could still feel something being sucked out of his body. A bead of sweat started forming on his forehead. He wanted to say that hatching the eggs using such method was absurd, and that such thing was not possible, but in the end, he chose to shut his mouth.
+
+The symbols on the second plate glowed and vanished after a full second. “Alright. That’s enough,” said the young master. “Remove your hand.”
+
+Pico released his hand and sighed in relief. He realized that sweat had formed on his face, and his breathing had quickened somewhat.
+
+Lark grinned at him. “Tiring isn’t it? As a non-magician, you’ll get used to that feeling eventually.” He pointed at the second plate. “Look.”
+The moment Pico looked at the second plate, his eyes widened in surprise. The four eggs placed on it started forming cracks. Moments after, newly born chicks started coming out of the shell, their bodies wet and slimy.
+“Wha—” a voice of surprise leaked out of Pico’s mouth.
+
+Lark bent down and grabbed one of the newly born chicks. He looked at the frozen rooster standing on the first plate. “The essence from the rooster will recover with rest. At most, I want you to hatch around fifty eggs per day. Rotate with the other workers so your mana won’t get depleted.”
+
+Pico was still stunned of what he saw. When he realized that the young master was staring at him, he finally broke out of his trance.
+
+“Ah, yes. Understood, young master!”
+
+Lark chuckled. “No need to be so stiff.” He patted Pico on the back. “You’ll get used to this method soon.”
+
+Pico stared at the newly born chick held by the young master. For some reason, he felt a sense of accomplishment after realizing that it was him who made those chicks hatch.
+
+Lark led the group towards the outside, particularly towards the place where the carts were. He took out a sapling.
+
+“You call this a Loi plant, right?” The plant Lark was holding was around two inches in length, with small yellow leaves growing out of the stem.
+
+Pico had seen them before. “Yes.”
+
+“I want you to plant these saplings over there.” Lark pointed at the empty area surrounding the coop. “A palm apart should do”
+
+Pico paused, unsure if he should speak of what was on his mind. Eventually, he swallowed the lump in his throat and said, “Forgive me for this, Young Master. But I don’t think we should plant those things.”
+
+“They attract bugs and several insects, right?” Lark smiled mischievously. “Yes, those pests—”
+
+“—Are food for the chickens in this farm,” completed Lark. “I’m asking you to plant these insect-attracting plants for this very reason. Think about it. Those insects would surely become pests in normal farms. But what
+about here? With thousands of chickens freely roaming about, they’ll be nothing but convenient food lying around.”
+
+The insects attracted to these plants were generally harmless to humans. Therefore, there were practically no risks but only benefits if they planted these things.
+
+Moreover, the fruits of these plants were the main ingredient in creating Umami Salt. A popular spice in the Magic Empire coveted by all restaurants. The very reason why the insects were attracted to Loi plants was due to the taste of Umami Salt within them.
+
+Lark did not bother explaining the second reason why they should plant the saplings. He deemed that overtime, they would realize these things.
+
+“I want you to build a small fence to protect the Loi sapling from the chickens,” said Lark. “A very small one will do. It’ll take several months before these plants produced fruits. By that time, gather those fruits and bring them to me. Is that clear?”
+
+“Understood, Young Master.”
+
+Chapter Sixteen
+
+The residents of Blackstone Town curiously looked at the soldiers marching in formation. They all wore leather armors, their spears disassembled into two parts so that it’ll be easy to carry during the march. Following behind the soldiers were five carts filled with wood and hemp ropes, with the last cart carrying a day’s worth of rations.
+
+“Hey, did you hear? It seems they’ll be entering the eastern part of the Endless Forest to subjugate some monsters!”
+
